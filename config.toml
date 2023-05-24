@@ -1,0 +1,48 @@
+baseurl = "https://github.com/ondazen/ondazen.git"
+languageCode = "en-us"
+theme = "hello-friend"
+paginate = 5
+
+[params]
+  # dir name of your blog content (default is `content/posts`)
+  contentTypeName = "post"
+  # "light" or "dark"
+  defaultTheme = "light"
+  # if you set this to 0, only submenu trigger will be visible
+  showMenuItems = 1	
+  # Enable to show reading time in minutes for posts
+  showReadingTime = false
+
+[languages]
+  [languages.en]
+    title = "ONDAZEN"
+    subtitle = "Fucina di scrittura creativa"
+    keywords = ""
+    copyright = ""
+    menuMore = "Mostra di più"
+    writtenBy = "Scritto da"
+    readMore = "Leggi di più"
+    readOtherPosts = "Leggi altri post"
+    newerPosts = "Post più recenti"
+    olderPosts = "Post più vecchi"
+    minuteReadingTime = "tempo di lettura"
+    dateFormatSingle = "2006-01-02"
+    dateFormatList = "2006-01-02"
+
+    [languages.en.params.logo]
+      logoText = "ONDAZEN - Fucina di scrittura creativa"
+      logoHomeLink = "/"
+    # or
+    #
+    # path = "/img/your-example-logo.svg"
+    # alt = "Your example logo alt text"
+
+    [languages.en.menu]
+      [[languages.en.menu.main]]
+        identifier = "about"
+        name = "Chi sono"
+        url = "/about"
+      #[[languages.en.menu.main]]
+      #  identifier = "showcase"
+      #  name = "Showcase"
+      #  url = "/showcase"
