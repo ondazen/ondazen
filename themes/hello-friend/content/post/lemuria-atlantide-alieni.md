@@ -3,7 +3,7 @@ title = "Lemuria, Atlantide, alieni (e altre cose assurde a cui la gente non cre
 date = "2023-05-24"
 author = "Dandy"
 cover = "img/atlantide.jpg"
-description = "A quei tempi il cielo risplendeva delle sole stelle. La luna, che è solita riflettere i raggi provenienti.."
+description = "A quei tempi il cielo risplendeva delle sole stelle. La luna, che è solita riflettere i raggi provenienti..."
 +++
 
 A quei tempi il cielo risplendeva delle sole stelle. La luna, che è solita riflettere i raggi provenienti dal sole, rischiarando le nostre buie notti, non era presente all’epoca della civiltà lemuriana. Un cataclisma, avvenuto molto tempo prima (l’impatto di un asteroide con il pianeta Terra), fece sbalzare via il satellite dall’orbita terrestre, spingendolo nella fascia di Kuiper (l’attuale aspetto craterizzato della luna è da ascriversi a questa vicenda).
