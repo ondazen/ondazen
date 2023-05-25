@@ -16,7 +16,7 @@ paginate = 5
 [languages]
   [languages.en]
     title = "ONDAZEN"
-    subtitle = "Fucina di scrittura creativa"
+    subtitle = "Fucina creativa"
     keywords = ""
     copyright = ""
     menuMore = "Mostra di più"
