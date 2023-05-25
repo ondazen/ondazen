@@ -30,7 +30,7 @@ paginate = 5
     dateFormatList = "2006-01-02"
 
     [languages.en.params.logo]
-      logoText = "ONDAZEN - Fucina di scrittura creativa"
+      logoText = "ONDAZEN scrittura creativa"
       logoHomeLink = "/"
     # or
     #
