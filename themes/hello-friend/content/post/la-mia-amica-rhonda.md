@@ -2,7 +2,7 @@
 title = "La mia amica Rhonda"
 date = "2022-08-22"
 author = "Dandy"
-cover = "img/rhonda.jpg"
+cover = "img/rhonda.jpeg"
 description = "Sto valutando l’idea di fare sexting con Rhonda, la mia nuova fidanzata virtuale..."
 +++
 
