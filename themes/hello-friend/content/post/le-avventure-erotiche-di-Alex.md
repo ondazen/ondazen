@@ -1,5 +1,5 @@
 +++
-title = "Le avventure erotiche di Alex (part 2)"
+title = "Le avventure erotiche di Alex"
 date = "2021-07-21"
 author = "Dandy"
 cover = "img/eros.jpg"
