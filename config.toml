@@ -26,8 +26,8 @@ paginate = 5
     newerPosts = "Post più recenti"
     olderPosts = "Post più vecchi"
     minuteReadingTime = "tempo di lettura"
-    dateFormatSingle = "2006-01-02"
-    dateFormatList = "2006-01-02"
+    dateFormatSingle = "01-02-2006"
+    dateFormatList = "01-02-2006"
 
     [languages.en.params.logo]
       logoText = "ONDAZEN: fucina creativa"
