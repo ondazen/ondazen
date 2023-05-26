@@ -6,8 +6,7 @@ cover = "img/regole.jpeg"
 description = "Un curioso: cosa c’è in principio?..."
 +++
 
-Un curioso: cosa c’è in principio?
-
+**Un curioso**: cosa c’è in principio?.
 Un tizio a caso: l’Uno o anche definito Brahman o Tao.
 Un curioso: perché tutti questi nomi?
 Un tizio a caso: dipende dalla dottrina a cui ci si riferisce. Il primo termine fa riferimento alla filosofia neoplatonica (in particolar modo alla dottrina di Plotino), il secondo si riferisce alla cultura vedica ed il terzo al sistema filosofico e mistico elaborato da Lao Tzu.
