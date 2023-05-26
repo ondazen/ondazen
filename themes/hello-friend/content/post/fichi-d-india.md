@@ -18,20 +18,14 @@ Iniziò a sperimentare vari modi per masturbarsi: con le calze di nylon della so
 
 Presto arrivò il momento in cui si stufò di immaginare e di annusare biancheria intima. Voleva sperimentare con una sua coetanea, o anche più grande, in carne e ossa. Propose ad un’amica di sua sorella di masturbarlo:
 
-“Baby, vorrei chiederti qualcosa.”
+- “Baby, vorrei chiederti qualcosa.”
+- “Dimmi Alex, di che si tratta? Veloce, però, perché stiamo per uscire.”
+- “Mi piacerebbe che prendessi in mano il mio pisello e ci giocassi un po’.”
 
-“Dimmi Alex, di che si tratta? Veloce, però, perché stiamo per uscire.”
+Baby, paonazza in volto, più per la vergogna che per l’ira, si rifiutò categoricamente, e andò a spifferarlo alla famiglia. Alex fece spallucce e non si demoralizzò, anzi continuò la sua spasmodica ricerca nei confronti di qualcuno che lo iniziasse ai piaceri del sesso. Dovette, però, aspettare il compimento del suo tredicesimo anno, prima di soddisfare la sua naturale curiosità. Destino volle che fu proprio la donna, che qualche anno prima gli mostrò involontariamente le sue areole dirompenti, ad iniziarlo alle gioie della carne. L’incontro si svolse durante una afosa serata estiva nella casa di villeggiatura della famiglia di Alex, sulla costa orientale della Sicilia. Sua madre invitò la storica coppia di amici a trascorrere qualche giorno in loro compagnia. Dopo cena, Alex era solito recarsi nella sua camera ad ascoltare un po’ di musica con il suo giradischi portatile a 45 giri. Anche quella sera, terminato il pasto, si accomiatò dagli ospiti per rinchiudersi in camera. Era stanco ma anche eccitato per aver rivisto quei seni compressi in una maglietta più piccola di due taglie. Così si abbassò le bermuda e, seduto sul pavimento, con la schiena appoggiata al muro, iniziò a sfregarsi il prepuzio con il pollice e l’indice, alternando questo gesto con brevi e ritmati colpi sul glande. Questo sublime appagamento venne frenato da un tocco sulla porta della sua camera. Vide la maniglia muoversi. Era impietrito, non riuscì a rialzarsi in tempo per sistemarsi le bermuda. Si trovò di fronte l’amica di sua madre, che, con aria divertita e allo stesso tempo incuriosita, esclamò:
 
-“Mi piacerebbe che prendessi in mano il mio pisello e ci giocassi un po’.”
-
-Baby, paonazza in volto, più per la vergogna che per l’ira, si rifiutò categoricamente, e andò a spifferarlo alla famiglia.
-
-Alex fece spallucce e non si demoralizzò, anzi continuò la sua spasmodica ricerca nei confronti di qualcuno che lo iniziasse ai piaceri del sesso. Dovette, però, aspettare il compimento del suo tredicesimo anno, prima di soddisfare la sua naturale curiosità. Destino volle che fu proprio la donna, che qualche anno prima gli mostrò involontariamente le sue areole dirompenti, ad iniziarlo alle gioie della carne. L’incontro si svolse durante una afosa serata estiva nella casa di villeggiatura della famiglia di Alex, sulla costa orientale della Sicilia. Sua madre invitò la storica coppia di amici a trascorrere qualche giorno in loro compagnia. Dopo cena, Alex era solito recarsi nella sua camera ad ascoltare un po’ di musica con il suo giradischi portatile a 45 giri. Anche quella sera, terminato il pasto, si accomiatò dagli ospiti per rinchiudersi in camera. Era stanco ma anche eccitato per aver rivisto quei seni compressi in una maglietta più piccola di due taglie. Così si abbassò le bermuda e, seduto sul pavimento, con la schiena appoggiata al muro, iniziò a sfregarsi il prepuzio con il pollice e l’indice, alternando questo gesto con brevi e ritmati colpi sul glande. Questo sublime appagamento venne frenato da un tocco sulla porta della sua camera. Vide la maniglia muoversi. Era impietrito, non riuscì a rialzarsi in tempo per sistemarsi le bermuda. Si trovò di fronte l’amica di sua madre, che, con aria divertita e allo stesso tempo incuriosita, esclamò:
-
-“Scusa Alex, pensavo fosse il bagno. Non volevo interromperti.”
-
-“Veramente io, io…”
-
-“Non preoccuparti, non dirò nulla ai tuoi genitori riguardo a ciò che ho appena visto.”
+-“Scusa Alex, pensavo fosse il bagno. Non volevo interromperti.”
+-“Veramente io, io…”
+-“Non preoccuparti, non dirò nulla ai tuoi genitori riguardo a ciò che ho appena visto.”
 
 La donna chiuse la porta della camera a doppia mandata, s’inginocchiò verso il ragazzino e iniziò a suggere delicatamente. Bastò poco, prima che la sua bocca si riempisse di qualche filamento biancastro, a testimonianza di un futuro liquido seminale. Alex non poteva crederci. Aveva finalmente provato l’ebrezza di ciò che aveva sentito chiamare tante volte POMPINO.
