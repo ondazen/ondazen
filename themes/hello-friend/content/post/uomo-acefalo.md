@@ -1,6 +1,6 @@
 +++
 title = "L'uomo acefalo"
-date = "29-04-2023"
+date = "2023-04-29"
 author = "Dandy"
 cover = "img/nohead.jpeg"
 description = "Tutte le mattina Alex si alza alle sette in punto, corre in bagno per una frettolosa minzione, poi impugna lo spazzolino..."

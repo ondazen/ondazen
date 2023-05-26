@@ -1,6 +1,6 @@
 +++
 title = "Lemuria, Atlantide, alieni (e altre cose assurde a cui la gente non crederà)"
-date = "24-05-2023"
+date = "2023-05-24"
 author = "Dandy"
 cover = "img/atlantide.jpg"
 description = "A quei tempi il cielo risplendeva delle sole stelle. La luna, che è solita riflettere i raggi provenienti..."

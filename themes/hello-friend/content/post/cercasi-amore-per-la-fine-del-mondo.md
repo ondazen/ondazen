@@ -1,6 +1,6 @@
 +++
 title = "Cercasi amore per la fine del mondo"
-date = "21-02-2021"
+date = "2021-02-01"
 author = "Dandy"
 cover = "img/asteroide.jpeg"
 description = "L’asteroide Vesta entrerà in collisione con la Terra tra 289 giorni, 6 ore, 4 minuti e 7 secondi. Questo è il tempo che mi rimane per trovare una fidanzata..."
@@ -12,19 +12,19 @@ Forse dovrei rivedere le mie priorità: mangiare un vasetto di gelato alla nocci
 
 Ho trent’anni. Pensavo di avere ancora tutta la vita davanti per trovare il vero amore. Chi lo avrebbe mai detto che la nostra civiltà si sarebbe estinta in questo ignominioso modo alla fine dell’anno 2021. Non voglio demoralizzarmi e perdere la speranza. Annoto sul mio taccuino:
 
-Cose che mi restano da fare
+==Cose che mi restano da fare==
 
-: Trovare una brava ragazza, onorarla e rispettarla finché morte non ci separi (quindi molto presto).
-: Trascorrere assieme una settimana a Bali, bighellonando tra i mercatini all’aperto e le spiagge dei surfisti.
-: Provare l’ebrezza di un “ménage à trois” (in tempi normali forse sarebbe complicato ma in questo particolare frangente dovrebbe andar via liscio).
-: Avere un amplesso davanti agli occhi stupefatti dei miei familiari (no dai, sto scherzando. Mai perdere il senso dello humour).
+: 1. Trovare una brava ragazza, onorarla e rispettarla finché morte non ci separi (quindi molto presto).
+: 2. Trascorrere assieme una settimana a Bali, bighellonando tra i mercatini all’aperto e le spiagge dei surfisti.
+: 3. Provare l’ebrezza di un “ménage à trois” (in tempi normali forse sarebbe complicato ma in questo particolare frangente dovrebbe andar via liscio).
+: 4. Avere un amplesso davanti agli occhi stupefatti dei miei familiari (no dai, sto scherzando. Mai perdere il senso dello humour).
 
-Luoghi in cui incontrare una brava ragazza
+==Luoghi in cui incontrare una brava ragazza==
 
-: Librerie? Forse non è più adeguato come luogo d’incontro. I libri saranno l’ultimo dei pensieri per il genere umano.
-: Locali notturni? Può essere. Troppo bui e chiassosi, però. Non fanno per me.
-: Palestre? Vedi librerie.
-: Gruppi di sostegno anti crisi? Qui la popolazione femminile dovrebbe abbondare.
+: 5. Librerie? Forse non è più adeguato come luogo d’incontro. I libri saranno l’ultimo dei pensieri per il genere umano.
+: 6. Locali notturni? Può essere. Troppo bui e chiassosi, però. Non fanno per me.
+: 7. Palestre? Vedi librerie.
+: 8. Gruppi di sostegno anti crisi? Qui la popolazione femminile dovrebbe abbondare.
 
 Ho appena inviato una email al mio capo, vomitandogli addosso tutto ciò che non ho mai avuto il coraggio di dirgli. Sono libero, senza più un lavoro capestro, che mi toglie il fiato. Darò sfogo a quei pochi risparmi che ho messo da parte a suon di sacrifici. Una casa di proprietà non mi servirà più. A pensarci bene, questa fine del mondo porterà più vantaggi che svantaggi: niente più sveglia alle 6.30, niente più code in auto per raggiungere qualsiasi destinazione, niente più orde di bambini schiamazzanti all’uscita delle scuole, niente più pensionati che, al supermercato, ti urtano il tallone d’achille con il carrello, facendoti imprecare a bassa voce.
 
