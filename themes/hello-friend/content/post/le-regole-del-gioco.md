@@ -42,7 +42,7 @@ description = "Un curioso: cosa c’è in principio?..."
 **Un tizio a caso**: esattamente. Siamo anche noi il frutto di un diverso grado di emanazione dell’Uno. E trovandoci molto lontano dalla perfezione, siamo limitatamente perfetti. Ma questa condizione è necessaria affinché si possa fare esperienza di questo mondo.  
 **Un curioso**: quindi il nostro fine è imparare tramite l’esperienza?  
 **Un tizio a caso**: il nostro fine è comprendere, interiorizzare ciò che è essenziale nella natura originale degli altri, e aggiungerlo alla nostra natura originale tramite un processo profondo e importante.  
-**Un curioso**: in che modo possiamo porci di fronte a questa comprensione? 
+**Un curioso**: in che modo possiamo porci di fronte a questa comprensione?   
 **Un tizio a caso**: l’essere umano dovrebbe utilizzare l’amore come strumento per comprendere. Solo in questo modo possiamo riavvicinarci alla perfezione originaria.  
 **Un curioso**: quindi dovremmo amare in modo incondizionato anche ciò che odiamo?  
 **Un tizio a caso**: esattamente. E’ l’unico modo per tornare a ricongiungerci con l’Uno.  
