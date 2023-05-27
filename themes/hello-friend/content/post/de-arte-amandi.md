@@ -1,6 +1,6 @@
 +++
 title = "De arte amandi"
-date = "2021-02-13"
+date = "2023-02-13"
 author = "Dandy"
 cover = "img/de-arte-amandi.jpg"
 description = "Dicono che la pratica porti all’eccellenza. E io di pratica ne ho fatta davvero poca. A cosa mi riferisco? All’arte amatoria, naturalmente..."
