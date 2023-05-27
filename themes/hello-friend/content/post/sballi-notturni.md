@@ -3,7 +3,7 @@ title = "Sballi notturni"
 date = "2021-08-22"
 author = "Dandy"
 cover = "img/sballi.jpeg"
-description = "Alex è seduto sulla sua sedia di design patchwork, orgogliosamente acquistata su un noto sito di e-commerce. Guarda il cursore del suo computer lampeggiare davanti a sé..."
+description = "Alex è seduto sulla sua sedia di design patchwork, orgogliosamente acquistata su un noto sito di e-commerce..."
 +++
 
 Alex è seduto sulla sua sedia di design patchwork, orgogliosamente acquistata su un noto sito di e-commerce. Guarda il cursore del suo computer lampeggiare davanti a sé. Si sta documentando sull’utilizzo della canapa e sui benefici che può avere sulle persone affette da insonnia. Oramai è diventato un problema per lui: dorme a singhiozzo per l’intera nottata, rimanendo, al suo risveglio, più stanco di quando si è coricato. Ha provato molteplici rimedi: la melatonina ad alto dosaggio (anche 20 milligrammi per notte), gli infusi di camomilla, la floriterapia - tramite l’assunzione di un particolare tipo di fiore australiano che esercita un’azione calmante sul costante fluire dei pensieri -, un goccio di Bourbon (quest’ultima soluzione gli causa una forte cefalea al risveglio). Non ha mai trovato realmente efficace nessuno dei rimedi citati, procurandogli, per tale motivo, una profonda frustrazione. Ciò che ha letto riguardo la canapa lo convince che quella può essere la strada giusta per la risoluzione del suo problema notturno. Legge su un sito specializzato in vendita di semi:
