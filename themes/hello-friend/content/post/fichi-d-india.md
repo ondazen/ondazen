@@ -1,5 +1,5 @@
 +++
-title = "Fichi d'india"
+title = "Fichi d'india (1)"
 date = "2021-07-16"
 author = "Dandy"
 cover = "img/fichi-india.jpeg"
