@@ -16,10 +16,10 @@ Alex abbandona subitamente l’idea di una temporanea coltivazione domestica, in
 
 Big, senza farselo ripetere due volte, gli offre il suo aiuto. Decidono di vedersi l’indomani all’imbrunire nell’abitazione di Alex. Si accomodano attorno al tavolo circolare situato nell’open space illuminato da colori crepuscolari. Mentre Big, secondo un rituale ben collaudato, si accinge alla preparazione della canapa, Alex annota sul suo taccuino:
 
--Prendere un “tocco di fumo”, dandogli la forma di una pallina.[^first]
--Sminuzzare la sostanza all’interno di una cartina in cui risiede anche del tabacco, che viene usato come comburente.
--Avvolgere con cura la cartina, stando attenti a non far uscire il contenuto.
--Applicare il filtro nella estremità che verrà utilizzata per aspirare il fumo.
+- Prendere un “tocco di fumo”, dandogli la forma di una pallina.[^first]
+- Sminuzzare la sostanza all’interno di una cartina in cui risiede anche del tabacco, che viene usato come comburente.
+- Avvolgere con cura la cartina, stando attenti a non far uscire il contenuto.
+- Applicare il filtro nella estremità che verrà utilizzata per aspirare il fumo.
 
 Big inizia a fare qualche tiro, con l’abilità di chi ha consolidato una certa esperienza. Alex lo osserva con timore misto a curiosità. Prima di fare qualsiasi cosa, prepara una check-list in cui elenca i possibili scenari nei quali potrebbe imbattersi:
 
