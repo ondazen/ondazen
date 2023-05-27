@@ -17,3 +17,4 @@ Ai tempi dell’università ho continuato ad inanellare una serie di clamorosi i
 Questa condizione perdurò ancora per diverso tempo, fino a quel giorno in cui lessi sul retro di copertina di una rivista: “chi fallisce spesso ha più probabilità di diventare un maestro”. In che modo il fallimento porta ad eccellere? Qual è il legame tra questi due eventi? Forse vuol dire che il dolore procurato dalle continue cadute spinge al continuo miglioramento?
 
 Quella frase mi cambiò la vita. Iniziai a studiare la psicologia femminile, le scienze sociali (con particolare riferimento alle relazioni sociali), il linguaggio para verbale e non verbale, la programmazione neurolinguistica. Oggi, non solo ho una splendida moglie e due bambine, ma ho fatto dei miei insuccessi una fiorente attività: possiedo, infatti, una scuola dove insegno ad altri uomini in difficoltà le tecniche della seduzione. Solo adesso comprendo il significato profondo di quelle parole.
+
