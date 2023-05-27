@@ -23,21 +23,21 @@ Big, senza farselo ripetere due volte, gli offre il suo aiuto. Decidono di veder
 
 Big inizia a fare qualche tiro, con l’abilità di chi ha consolidato una certa esperienza. Alex lo osserva con timore misto a curiosità. Prima di fare qualsiasi cosa, prepara una check-list in cui elenca i possibili scenari nei quali potrebbe imbattersi:
 
-☐ Paranoia su qualsiasi pensiero che sopraggiunge
-☐ Forte giramento di testa dovuto a paura di non reggere lo sballo
-☐ Dire stronzate a profusione
-☐ Ridere fino a cadere dalla sedia
-☐ Rilassamento muscolare (arti pesanti)
-☐ Problemi che evaporano (razionalizzare in positivo pensieri negativi)
-☐ Stordimento che causa un buon sonno
-☐ Perdita di memoria a breve termine
-☐ Movimenti e favella rallentati
-☐ Biascicamento (vedi sopra)
-☐ Aumento della sudorazione
-☐ Equilibrio precario
-☐ Nausea
-☐ Improvvisa fame
-☐ Costante arsura
++ Paranoia su qualsiasi pensiero che sopraggiunge
++ Forte giramento di testa dovuto a paura di non reggere lo sballo
++ Dire stronzate a profusione
++ Ridere fino a cadere dalla sedia
++ Rilassamento muscolare (arti pesanti)
++ Problemi che evaporano (razionalizzare in positivo pensieri negativi)
++ Stordimento che causa un buon sonno
++ Perdita di memoria a breve termine
++ Movimenti e favella rallentati
++ Biascicamento (vedi sopra)
++ Aumento della sudorazione
++ Equilibrio precario
++ Nausea
++ Improvvisa fame
++ Costante arsura
 
 Presto Alex saprà quale scenario potrà spuntare. Prende la cartina ripiena del prezioso carico e inizia ad aspirare. Al primo tentativo non riesce a trattenere il fumo e lo espelle completamente. Il secondo tentativo risulta anche peggiore: aspira il fumo, cercando di ingoiarlo come se fosse un bolo triturato e impregnato di saliva. Ciò gli procura una forte tosse e un fastidioso bruciore alla gola. Finalmente il terzo tentativo si avvicina a ciò che viene definito fumare: aspira il quantitativo di fumo prodotto e ne rilascia una piccola parte. Questa volta sembra che un qualche tipo di effetto si faccia strada. Ripete l’operazione in modo identico per altre due volte. Poi lascia cadere la testa all’indietro, chiude gli occhi e si abbandona al suo destino. È pervaso da sensazioni contrastanti. Un costante impulso all’emesi gli ricorda le estati della sua infanzia, quando andava a pescare con suo padre al calar del sole. Il mare lungo - costituito dalle onde provenienti da una lontana zona di forte vento - causava la gioia della fauna marina, grazie al cibo predigerito che il povero Alex riversava puntualmente sulla superficie salmastra, fino a sprofondare e a sparire tra le sfumature violacee del fondale. I suoi arti sembrano rivestiti di piombo. Alzare un braccio equivale da alzare un manubrio da dieci chili. La sua testa vortica, come se qualcuno da dietro gliela sballottasse con violenza. Le parole gli escono dalla bocca in modo sconnesso, senza riuscire a comporre una frase di senso compiuto. Ciò lo fa sorridere. Non riesce a rilassarsi del tutto, a causa del pensiero fisso sulla nausea provata. Un conato di vomito si fa strada tra le viscere, così si precipita in bagno ed abbraccia la tazza come se fosse l’amore ritrovato della sua vita. Big lo segue con aria divertita, cercando di tranquillizzarlo. Dopo qualche profonda inspirazione, l’allarme sembra rientrare. È fuori pericolo, per il momento. Ritorna al tavolo, cercando di godersi gli effetti benefici e rilassanti della sostanza cannabinoide. Ha ancora venti minuti prima che questa sensazione si attenui e svanisca del tutto.
 
