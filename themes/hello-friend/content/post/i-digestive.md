@@ -33,8 +33,8 @@ Per rincuorare i genitori che tutto procedeva nel migliore dei modi, Alex e i su
 
 Fortunatamente il credito telefonico terminò e così anche quel dialogo surreale. Frenk fece giurare agli astanti di non parlare mai a nessuno di quello che avevano appena udito. Alex, il più saggio del gruppo, abbozzando un sorriso sardonico, come se volesse dire “non mancheremo”, fece un cenno con il capo. Ad ogni modo quella sensuale voce femminile rimase impressa nella testa di Frenk, a tal punto che venne usata nei mesi a venire come fonte immaginifica per le sue attività onanistiche.
 
-Il desiderio di trasgressione sfociò anche in un ulteriore aspetto, tipico del periodo adolescenziale: l’acquisto di materiale pornografico. Ciò avvenne presso un’edicola di periferia, dove il passaggio era limitato. L’idea venne sempre a Frenk, ma Alex si trovò subito d’accordo ed entusiasta.
-“Alex, mentre faccio l’acquisto, cerca di tenere a distanza le persone che si avvicinano.”
+Il desiderio di trasgressione sfociò anche in un ulteriore aspetto, tipico del periodo adolescenziale: l’acquisto di materiale pornografico. Ciò avvenne presso un’edicola di periferia, dove il passaggio era limitato. L’idea venne sempre a Frenk, ma Alex si trovò subito d’accordo ed entusiasta.  
+“Alex, mentre faccio l’acquisto, cerca di tenere a distanza le persone che si avvicinano.”  
 “E in che modo?”  
 “Chiedi informazioni su cosa vedere in centro città, ad esempio.”  
 “Mi sembra una pessima idea.”  
