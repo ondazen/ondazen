@@ -2,7 +2,7 @@
 title = "Morte di un pianisita"
 date = "2021-01-31"
 author = "Dandy"
-cover = "img/delivery.jpeg"
+cover = "img/piano_jazz.jpeg"
 description = "Era un uomo azzimato, uno di quelli che teneva molto al proprio aspetto esteriore. I capelli impomatati erano il suo marchio di fabbrica..."
 +++
 
