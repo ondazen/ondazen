@@ -1,9 +1,9 @@
 +++
 title = "La signorina Baratro: epilogo"
-date = "2021-03-17"
+date = "2021-03-10"
 author = "Dandy"
 cover = "img/baratro2.jpeg"
-description = "..."
+description = "La signorina Baratro, come tutte le mattine, si reca di buona lena presso lo studio legale in cui lavora. La sua nottata è stata alquanto movimentata..."
 +++
 
 La signorina Baratro, come tutte le mattine, si reca di buona lena presso lo studio legale in cui lavora. La sua nottata è stata alquanto movimentata: un vortice di pensieri l’ha lasciata vigile per l’intera durata dell’oscurità.
