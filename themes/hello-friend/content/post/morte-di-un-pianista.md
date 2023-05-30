@@ -1,5 +1,5 @@
 +++
-title = "Morte di un pianisita"
+title = "Morte di un pianista"
 date = "2021-01-31"
 author = "Dandy"
 cover = "img/piano_jazz.jpeg"
