@@ -3,7 +3,7 @@ title = "L'odore della pioggia"
 date = "2020-06-02"
 author = "Dandy"
 cover = "img/pioggia.jpeg"
-description = Ti sei mai fatta sorprendere dalla pioggia, senza ombrello?..."
+description = "Ti sei mai fatta sorprendere dalla pioggia, senza ombrello?..."
 +++
 
 Ti sei mai fatta sorprendere dalla pioggia, senza ombrello?
