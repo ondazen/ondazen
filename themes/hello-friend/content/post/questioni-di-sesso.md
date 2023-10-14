@@ -1,5 +1,5 @@
 +++
-title = "Riflessioni semi serie di uno studente ermetico: questioni di sesso"
+title = "Questioni di sesso"
 date = "2023-10-14"
 author = "Dandy"
 cover = "img/questioni-sesso.jpeg"
