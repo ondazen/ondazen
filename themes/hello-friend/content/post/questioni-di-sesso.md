@@ -33,7 +33,7 @@ Spesso immagino come potrebbe andare un appuntamento romantico con un’avvenent
 “Ahahah. Sei divertente, ma no!”  
 “Mi vuoi dire di cosa si tratta?”  
 “Non scopo per puro diletto.”  
-“Ho capito. Stai cercando d’impressionarmi. Ma a me sta bene così. Non siamo più negli anni cinquanta. Tutto il mondo scopa per trascorrere un po’ di tempo.”  
+“Ho capito. Stai cercando d’impressionarmi. Ma a me sta bene così. Non siamo più negli anni cinquanta del secolo scorso. Tutto il mondo scopa per diletto e per trascorrere un po’ di tempo.”  
 “Sono serio. Sulle questioni di sesso non transigo. O si gioca alle mie regole o non se ne fa nulla.”  
 
 In quel preciso momento la donna scende dall’auto, sbatte la portiera, si allontana ridendo in modo intermittente e scuote la testa come per dire “ma capitano a me tutti gli sciroccati!”
