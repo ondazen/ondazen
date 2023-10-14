@@ -11,8 +11,10 @@ Niente più esplorazioni nel mondo del sesso “disinvolto”, fine a sé stesso
 
 Spesso immagino come potrebbe andare un appuntamento romantico con un’avvenente donna dalle proporzioni auree, una volta terminati i convenevoli iniziali:
 
-“Andiamo da te?”<br>
-“Domani mi devo alzare presto, forse dovremmo rimandare.”<br>
+“Andiamo da te?”
+
+“Domani mi devo alzare presto, forse dovremmo rimandare.”
+
 “Ho capito, non ti piaccio abbastanza.”<br>
 “Non saltare a conclusioni affrettate.”<br>
 “E allora di cosa si tratta? Uhm, sei sposato? Ti aspetta una donna a casa?”<br>
