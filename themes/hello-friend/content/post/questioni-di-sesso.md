@@ -38,4 +38,4 @@ Spesso immagino come potrebbe andare un appuntamento romantico con un’avvenent
 
 In quel preciso momento la donna scende dall’auto, sbatte la portiera, si allontana ridendo in modo intermittente e scuote la testa come per dire “ma capitano a me tutti gli sciroccati!”
 
-Probabilmente andrebbe proprio così con il 98% delle donne. Ma dove si annida il restante 2%? Forse dovrei iniziare a frequentare qualche centro gnostico.
+Probabilmente andrebbe proprio così con il 98% delle donne. Ma dove si annida il restante 2%? Forse dovrei iniziare a frequentare qualche ashram.
