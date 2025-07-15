@@ -10,12 +10,12 @@ Era il 1984.
 
 L’anno in cui il mondo si vestiva delle Olimpiadi a Los Angeles,
 in cui il Napoli si accendeva di speranza accogliendo El Pibe de Oro,
-in cui Greg Louganis, sospeso tra cielo e acqua, compiva un volo perfetto dalla piattaforma dei dieci metri,
+in cui Greg Louganis, sospeso tra cielo e acqua, compiva un volo perfetto dalla piattaforma dei dieci metri.
 
 Io avevo undici anni, e il mondo mi sembrava enorme e inafferrabile.
 Fu l’anno in cui imparai a stare a galla in acque profonde, non tanto nuotando, ma arrendendomi a esse — come si fa con la vita, quando si smette di lottare e si accetta il suo corso.
 
-Quell’estate ascoltai per la prima volta una musica che mi fece percepire l’Assoluto: Fanfare for the Common Man di Aaron Copland. Le sue note - limpide e malinconiche - entrarono nella mia vita come un caldo vento autunnale, Non sembrava una composizione, era un’epifania: lenta, maestosa, come se il tempo rallentasse il suo respiro.
+Quell’estate ascoltai per la prima volta una musica che mi fece percepire l’Assoluto: Fanfare for the Common Man di Aaron Copland. Le sue note - limpide e malinconiche - entrarono nella mia vita come un caldo vento autunnale. Non sembrava una composizione, era un’epifania: lenta, maestosa, come se il tempo rallentasse il suo respiro.
 Quei colpi di timpano, quei fiati solenni,
 erano come il cuore del mondo che batteva con calma e dignità, rendendo sacro anche il mio piccolo essere.
 
