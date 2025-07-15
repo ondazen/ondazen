@@ -6,7 +6,7 @@ cover = "img/turbamenti.jpeg"
 description = "C’è stato un tempo di bruma e di carne, quando il cuore batteva in gola non per amore..."
 +++
 
-C’è stato un tempo di bruma e di carne, quando il cuore batteva in gola non per amore, ma per l’immagine di un calendario appesa al muro come un’opera d’arte.
+C’è stato un tempo di bruma e di carne, quando il cuore batteva in gola non per amore, ma per l’immagine di un calendario, che stava appeso al muro come un’opera d’arte.
 
 Erano Dee, scolpite da luci sintetiche, più vere del vero, più provocanti del nudo che oggi scivola via senza lasciar traccia.
 
