@@ -3,7 +3,7 @@ title = "Millenovecento ottantaquattro"
 date = "2025-07-15"
 author = "Dandy"
 cover = "img/millenovecentoottantaquattro.jpeg"
-description = "C’è stato un tempo di bruma e di carne, quando il cuore batteva in gola non per amore..."
+description = "Era il 1984. L’anno in cui il mondo si vestiva delle Olimpiadi a Los Angeles..."
 +++
 
 Era il 1984.
