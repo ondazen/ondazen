@@ -13,7 +13,7 @@ Irina veniva da una terra lontana, al confine tra Europa e mistero. I capelli sp
 Nel letto era vulcano e tempesta, voleva sperimentare, dominare, giocare. Quando dissi no ai suoi estremi, mi guardò come si guarda una porta chiusa. E se ne andò.
 
 Elena era rigida come l’uniforme che indossava. Aveva il corpo scolpito e lo sguardo che tagliava. Ma bastava toccarla appena, perché diventasse seta.
-Faceva la poliziotta per necessità, non per vocazione. Una notte, dopo una serata coi suoi colleghi, tentò di multarmi per eccesso di velocità. Era uno scherzo, ma suonò come una sentenza. E ci lasciammo.
+Faceva la poliziotta per necessità, non per vocazione. Una notte, dopo una serata coi suoi colleghi, tentò di multarmi per eccesso di velocità. Era uno scherzo, ma suonò come una sentenza. Così ci lasciammo.
 
 Anna scivolava leggera come se pattinasse ancora sul ghiaccio. Il tempo sembrava averle risparmiato qualcosa, o forse era la memoria a renderla più giovane.
 Nel corpo aveva flessibilità e grazia, e ogni notte era una pagina del Kamasutra che prendeva vita. Finimmo per provare tutto. E quando non restò più nulla da inventare, ci salutammo in silenzio.
