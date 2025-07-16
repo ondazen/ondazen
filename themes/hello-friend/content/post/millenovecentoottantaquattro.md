@@ -29,7 +29,7 @@ con una complicità che mi faceva quasi invidia.
 
 Mi colpì ogni cosa: il modo in cui sollevava i piedi dalla sabbia,
 come se non volesse lasciare impronte;
-il gesto distratto con cui si toccava la nuca; ma soprattutto quelle due piccole depressioni nella parte bassa della schiena, come impronte lasciate dagli dèi su un corpo da adorare. Non sapevo ancora che avevano un nome: fossette di Venere. Lo avrei scoperto più tardi, quando ogni dettaglio del corpo umano cominciava a diventare per me geografia del desiderio.
+il gesto distratto con cui si toccava la nuca; ma soprattutto quelle due piccole depressioni cutanee nella parte bassa della schiena, come impronte lasciate dagli dèi su un corpo da adorare. Non sapevo ancora che avevano un nome: fossette di Venere. Lo avrei scoperto più tardi, quando ogni dettaglio del corpo umano cominciava a diventare per me geografia del desiderio.
 
 In quella visione c’era tutto:
 il turbamento, la meraviglia, l’inesplicabile desiderio di restare nei paraggi del suo respiro,
