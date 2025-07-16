@@ -23,7 +23,7 @@ Ritiravo l’amo nudo e ridevo, con quella pazienza serena che hanno i bambini q
 Ma quando sentivo quella trazione più forte, quel colpo deciso, il cuore mi balzava. Cominciava la lotta, breve ma intensa, una danza tra me e quella creatura sconosciuta. La parte più difficile veniva dopo, quando dovevo staccare l’amo dalla sua bocca ancora tremante. Lo facevo con mani impacciate e occhi pieni, e lo guardavo mentre smetteva di lottare. Poi lo adagiavo nel secchio, in silenzio, e tornavo al mio compito, con una parte di me che rimaneva lì, ferma, con lui.
 
 Le ore passavano così, tra parole sussurrate, il rumore dell’acqua e il mio stomaco che spesso cedeva alle onde. Rimettevo il pranzo in mare,
-e mi pareva quasi un’offerta, un modo ingenuo per ringraziare del sacrificio del pesce pescato.
+e mi pareva quasi un’offerta, un modo ingenuo per ringraziare del pesce pescato.
 
 Quando il buio calava, senza annunciare troppo, sapevamo che era finita. Nel ritorno mi rifugiavo a poppa, mentre il vento mi graffiava la pelle e i denti battevano. Non avevo una maglietta, solo una stuoia bagnata, che mi stringevo addosso come fosse un abbraccio.
 
