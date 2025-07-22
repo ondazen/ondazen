@@ -1,5 +1,5 @@
 +++
-title = "Due miglia da casa"
+title = "Solo il martedì"
 date = "2025-07-22"
 author = "Dandy"
 cover = "img/solo_il_martedi.jpeg"
