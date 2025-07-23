@@ -3,7 +3,7 @@ title = "L'attesa"
 date = "2025-07-23"
 author = "Dandy"
 cover = "img/attesa.jpeg"
-description = "..."
+description = "Paula osserva in silenzio la lenta processione dei passeggeri che entrano nel vagone, uno dopo l’altro, come attori inconsapevoli in una scena che lei vorrebbe restasse vuota..."
 +++
 
 Paula osserva in silenzio la lenta processione dei passeggeri che entrano nel vagone, uno dopo l’altro, come attori inconsapevoli in una scena che lei vorrebbe restasse vuota. Il posto di fronte a lei è ancora libero, e nel suo intimo prega che resti così, come un piccolo tempio personale dove poter respirare senza dover incontrare altri occhi.
