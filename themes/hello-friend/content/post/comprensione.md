@@ -26,6 +26,6 @@ Allora compresi. Quelle paure non erano nemici, ma sentinelle. Custodi del porta
 
 Lacrime mi scesero dagli occhi chiusi. Non di dolore, ma di resa. Non di sconfitta, ma di verità.
 
-E in quel momento, nel profondo silenzio che solo l’essenza divina riconosce, sentii le parole che attendeva da sempre, sussurrate dalla Madre:
+E in quel momento, nel profondo silenzio che solo l’essenza divina riconosce, sentii le parole che attendevo da sempre, sussurrate dalla Madre:
 
 **“Figlio mio, non sei venuto per vincere le paure. Sei venuto per amarne le sue ferite.”**
