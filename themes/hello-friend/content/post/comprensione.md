@@ -20,7 +20,7 @@ Chiusi gli occhi e, nel buio interiore, le chiamai per nome, una ad una. Con una
 
 “Divina Madre Kundalini, aiutami. Mostrami cosa non vedo. Fammi scendere dove ho sempre avuto paura di andare.”
 
-Nel silenzio che seguì, sentii qualcosa muoversi. Non fuori, ma dentro. Un tremore. Una vibrazione dolce, come un battito d’ali. E una presenza. Calda, femminile, compassionevole. Non dissi nulla. Ma era lì. Lo sapevo.
+Nel silenzio che seguì, sentii qualcosa muoversi. Non fuori, ma dentro. Un tremore. Una vibrazione dolce, come un battito d’ali. E una presenza. Calda, femminile, compassionevole. Non disse nulla. Ma era lì. Lo sapevo.
 
 Allora compresi. Quelle paure non erano nemici, ma sentinelle. Custodi del portale. Avevo bisogno di attraversarle, non di eliminarle. Perché dietro di esse, si celava la mia forza. Il mio vero volto. Il diamante sepolto nel fango.
 
