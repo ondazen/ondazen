@@ -12,7 +12,7 @@ Così prendeva forma dentro di me il primo pensiero durante l’aurora nascente,
 
 Pensavo di aver vinto. Di averle guardate in faccia abbastanza volte da disarmarle. Eppure adesso mi stringevano di nuovo. Una stretta gelida al petto, una voce interna che ripeteva: “Non sei ancora pronto. Non sei abbastanza.”
 
-Camminai scalzo fino al piccolo tappeto al centro della stanza. Lì dove ero solito meditare. Lì dove, tante volte, ero morto e rinato in silenzio. Mi sedetti a gambe incrociate. Inspirai lentamente. Trattenni il respiro a pieni polmoni. Espirai lentamente. Trattenni il respiro a polmoni svuotati. Ma quella mattina il respiro non bastava. Il vuoto dentro era troppo denso. Non era solo paura. Era un grido antico. Un richiamo dalla caverna del mio profondo.
+Camminai scalzo fino al piccolo tappeto al centro della stanza. Lì dove ero solito meditare. Lì dove, tante volte, ero morto e rinato in silenzio. Mi sedetti a gambe incrociate. Inspirai lentamente. Trattenni il respiro a pieni polmoni. Espirai lentamente. Trattenni il respiro a polmoni svuotati. Ma quella mattina il respiro non bastava. Il vuoto dentro era troppo denso. Non era solo paura. Era un grido antico.
 
 “Allora sia,” sussurrai. “Non combatterò. Non scapperò. Non fuggirò nemmeno nella meditazione. Trascinatemi giù con voi.”
 
