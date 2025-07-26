@@ -28,4 +28,4 @@ Lacrime mi scesero dagli occhi chiusi. Non di dolore, ma di resa. Non di sconfit
 
 E in quel momento, nel profondo silenzio che solo l’essenza divina riconosce, sentii le parole che attendevo da sempre, sussurrate dalla Madre:
 
-**“Figlio mio, non sei venuto per vincere le paure. Sei venuto per amarne le sue ferite.”**
+**“Figlio mio, non sei venuto per vincere le paure. Sei venuto per amarne le ferite.”**
