@@ -18,12 +18,12 @@ Poi arriva quel momento. Lei mi guarda, gli occhi danzano tra curiosità e consu
 “Allora, andiamo da te?”
 E il mio cuore sussulta, non per l’invito, ma per ciò che devo dire.
 
-“No. Non stanotte.”
-“Non ti piaccio abbastanza?”
-“Non è questo…”
-“Allora cosa c’è che non va?”
-“È solo che… sto cercando altro.
-Sto cercando l’anima.”
+“No. Non stanotte.”  
+“Non ti piaccio abbastanza?”  
+“Non è questo…”  
+“Allora cosa c’è che non va?”  
+“È solo che… sto cercando altro.  
+Sto cercando l’anima.”  
 
 “L’anima?” ride, quasi con tenerezza, come si ride di un bimbo che crede negli elfi. Poi se ne va, lasciando nell’aria il profumo del disincanto e la solita sensazione di essere fuori dal tempo, fuori dal mondo.
 
