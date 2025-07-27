@@ -14,9 +14,9 @@ Ho deposto le armi del piacere vuoto, ho smesso di cercare rifugio nei gesti aut
 
 A volte mi sorprendo a immaginare un incontro, un volto, una sera. Un appuntamento in cui qualcosa di antico si affaccia zoppicante.
 
-Poi arriva quel momento. Lei mi guarda, gli occhi danzano tra curiosità e consuetudine.
-“Allora, andiamo da te?”
-E il mio cuore sussulta, non per l’invito, ma per ciò che devo dire.
+Poi arriva quel momento. Lei mi guarda, gli occhi danzano tra curiosità e consuetudine.  
+“Allora, andiamo da te?”  
+E il mio cuore sussulta, non per l’invito, ma per ciò che devo dire.  
 
 “No. Non stanotte.”  
 “Non ti piaccio abbastanza?”  
