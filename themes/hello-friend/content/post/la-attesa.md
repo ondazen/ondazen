@@ -14,7 +14,7 @@ Ogni persona che passa davanti al suo sguardo diventa una caricatura nella sua m
 
 È una ragazza fuori tempo, Paula. Indossa vestiti che odorano di passato e porta occhiali tondi come occhi che vogliono osservare senza essere visti. Il suo caschetto è tagliato con precisione, ma dentro di sé tutto è sfumato, incerto, trattenuto.
 
-Poi, quasi per caso, accade qualcosa. Un ragazzo – uno sconosciuto dai tratti gentili e la voce calda – si ferma davanti a lei. Ha le spalle larghe e l’aria di chi ha vissuto molte storie. Chiede se può sedersi. Paula acconsente con un filo di voce, e in quel gesto c’è già una resa.
+Poi, quasi per caso, accade qualcosa. Un ragazzo – uno sconosciuto dai tratti gentili e la voce calda – si ferma davanti a lei. Ha le spalle larghe e l’aria di chi ha vissuto molte vite. Chiede se può sedersi. Paula acconsente con un filo di voce, e in quel gesto c’è già una resa.
 
 Max è il suo nome. Lavora nel mondo della tecnologia, ma parla di cattedrali gotiche e alchimia come se appartenesse anche lui a un’altra epoca, come lei. Le loro parole iniziano a scorrere tra libri, accenni d’arte, e domande sospese. In quel treno che corre verso Dublino, tutto il mondo sembra essersi ritirato. Restano solo loro, due linee parallele che per un attimo si toccano.
 
