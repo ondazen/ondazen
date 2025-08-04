@@ -28,7 +28,7 @@ MAESA
 RIALTA
 *“No. Era una gibbosa crescente.”*
 
-Maesa annuì, cupa: *“Sta tentando d’invocare prima del tempo. Brucia le tappe e in questo modo finirà che bruciare anche noi.”*
+Maesa annuì, cupa: *“Sta tentando d’invocare prima del tempo. Brucia le tappe e in questo modo finirà col bruciare anche noi.”*
 
 Rialta si avvicinò, poggiando le mani sul tavolo in legno nero.
 *“Zia, Leire mi ha chiesto di seguirla. Dice che tu ormai sei vecchia. Che il sangue si fredda dentro di te.”*
