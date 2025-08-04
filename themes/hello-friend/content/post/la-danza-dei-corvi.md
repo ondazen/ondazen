@@ -3,7 +3,7 @@ title = "La danza dei corvi"
 date = "2025-08-04"
 author = "Dandy"
 cover = "img/corvi.jpeg"
-description = "..."
+description = "Le colline aride di Vilamorta, nella provincia di Tarragona, ardevano sotto un cielo plumbeo..."
 +++
 
 Liberamente ispirato ad una storia vera...
