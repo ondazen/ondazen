@@ -10,7 +10,7 @@ Nel periodo agostano, quando il sole incendia l’asfalto come brace rovente, Mi
 
 Il quartiere di Brera, svuotato di flash e clamori, si fa dedalo arcano, con le sue viuzze che sussurrano storie d’artisti e di maghi. I balconi chiusi e le persiane abbassate custodiscono il respiro lento delle dimore, come una madre che veglia sul sonno del proprio bambino.
 
-Porta Nuova, che nei giorni ordinari è un fiume di colletti bianchi e vetro che riflette ambizione, ora è un tempio vuoto dove l’eco risuona lontano e i suoi segreti sono ben conservati. I grattacieli si specchiano in cielo, immobili e solenni, e la città si ascolta, per una volta, mentre tace.
+Porta Nuova, che nei giorni ordinari è un fiume di colletti bianchi e vetro che riflette ambizione, ora è un tempio vuoto dove l’eco risuona lontano e i suoi segreti sono ben custoditi. I grattacieli si specchiano in cielo, immobili e solenni, e la città si ascolta, per una volta, mentre tace.
 
 Nel cuore del centro, le gallerie si fanno teatri di luce, scene d’altri tempi, dove ogni passo risuona come su un palcoscenico lasciato a riposo dopo la recita. Là, sotto le arcate, la Milano ottocentesca ritorna, non per nostalgia, ma per grazia: è un ricordo vivido che sublima i tuoi occhi.
 
