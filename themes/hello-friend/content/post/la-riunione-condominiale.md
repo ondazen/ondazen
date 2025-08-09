@@ -29,6 +29,7 @@ description = "06:00 A.M. – Andrea si siede sulla coperta da meditazione bened
 — **Ego Lavorativo** (sbuffa): *“Questa è pornografia. Basta! Se non consegni il report, il capo ti fa fuori.”*  
 
 All’improvviso, dal buio mentale spunta Ego Creativo (frac, cilindro, bastone da prestigiatore), che non si era mai palesato.  
+
 — **Ego Creativo**: *“Signore e signori, ecco a voi… il musical della meditazione! Titolo: ‘Zen e Lussuria’. Scena prima: Andrea alla scrivania, Silvia che entra in slow motion, il capo che canta ‘Dammi il report, baby!’”*  
 
 — **Andrea**: *“Nessun musical. Silenzio!”*  
