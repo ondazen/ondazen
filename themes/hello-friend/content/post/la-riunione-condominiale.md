@@ -14,7 +14,7 @@ description = "06:00 A.M. – Andrea si siede sulla coperta da meditazione bened
 
 — **Andrea**: *“No. Inspiro lentamente… ritenzione… espiro lentamente…”*  
 
-— **Ego Erotico #1** (maglietta attillata, sguardo malandrino): *“Respiro? Ma ieri hai visto Silvia dell’amministrazione? Leggings color carne, Andrea. Sai a cosa mi riferisco…”*  
+— **Ego Erotico #1** (maglietta attillata, sguardo malandrino): *“Inspiro? Ma ieri hai visto Silvia dell’amministrazione? Leggings color carne, Andrea. Sai a cosa mi riferisco…”*  
 
 — **Ego Erotico #2** (atletico, tuta da palestra): *“Pfff… Silvia è niente. Pensa a quella mora della palestra con il top rosso. Molliamo qui questa perdita di tempo e andiamo subito in sala pesi. Magari a quest’ora la becchiamo.”*  
 
