@@ -8,7 +8,7 @@ description = "06:00 A.M. – Andrea si siede sulla coperta da meditazione bened
 
 06:00 A.M. – Andrea si siede sulla coperta da meditazione benedetta dal suo guru. Silenzio. Inspira, espira…  
 
-06:00 e 10 secondi A.M. - Il silenzio muore.  
+06:00 e 10 secondi - Il silenzio muore.  
 
 — Ego Lavorativo (completo grigio, cravatta blu, occhiali da sole): “Ordine del giorno: il report per il capo. È in ritardo di ventiquattro ore. Suggerisco di annullare questa farsa zen e di accendere immediatamente il computer.”  
 
