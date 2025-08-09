@@ -3,8 +3,7 @@ title = "La riunione condominiale"
 date = "2025-08-09"
 author = "Dandy"
 cover = "img/meditazione.jpeg"
-description = "06:00 A.M. – Andrea si siede sulla coperta da meditazione benedetta dal suo guru. Silenzio. Inspira, espira…
-"
+description = "06:00 A.M. – Andrea si siede sulla coperta da meditazione benedetta dal suo guru. Silenzio. Inspira, espira…"
 +++
 
 06:00 A.M. – Andrea si siede sulla coperta da meditazione benedetta dal suo guru. Silenzio. Inspira, espira…  
