@@ -49,10 +49,10 @@ All’improvviso, dal buio mentale spunta Ego Creativo (frac, cilindro, bastone 
 — **Ego Filosofico**: *“Io propongo la mozione suprema: sciogliere l’assemblea in favore dell’illuminazione cosmica.”*  
 
 — **Ego Creativo**: *“Io voto per un finale a sorpresa con fuochi d’artificio mentali!”*  
+
 Tutti urlano, Andrea in mezzo cerca di respirare, ma sembra di stare al souk di Marrakech all’ora di pranzo.  
 
-07:00 A.M. – Bip bip bip. Il timer suona. Alexa decreta la fine della meditazione.  
-Andrea apre gli occhi, sudato come dopo una sauna in piena estate.  
+07:00 A.M. – Bip bip bip. Il timer suona. Alexa decreta la fine della meditazione. Andrea apre gli occhi, sudato come dopo una sauna in piena estate.  
 
 — **Andrea** (sottovoce): *“Domani, per sicurezza, medito alle tre di notte… forse gli altri dormono.”*  
 
