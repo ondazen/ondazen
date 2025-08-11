@@ -43,7 +43,7 @@ description = "“Ah, che splendida giornata per svegliarsi alle sei e illuminar
 **Io**: *“Non è vacanza. È prigionia.”*  
 **Ego del Turismo Spirituale**: *“Sì ma almeno c’è il buffet del karma: ricevi ciò che hai ordinato in vite precedenti… sorpresa garantita!”*  
 
-**[ore 16:30 – innesco familiare]**
+**[ore 16:30 – innesco familiare]**  
 **Io**: *(respirando profondamente) “Resta calmo… osserva la reazione…”*  
 **Ego della Rabbia Domestica**: *“Come si permette di parlarmi così? Dopo tutto quello che faccio!”*  
 **Io**: *“Questo è solo un ruolo karmico, non la mia vera identità.”*  
