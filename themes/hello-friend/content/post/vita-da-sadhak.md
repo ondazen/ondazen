@@ -37,7 +37,7 @@ description = "“Ah, che splendida giornata per svegliarsi alle sei e illuminar
 **Io**: *“Non c’è niente di interessante nella caduta.”*  
 **Ego della Lussuria**: *“Vero, ma la discesa in picchiata ha sempre il suo fascino.”*  
 
-**[ore 15:00 – la ruota del samsara]**
+**[ore 15:00 – la ruota del samsara]**  
 **Io**: *“Basta reincarnazioni… non voglio più girare questa ruota.”*  
 **Ego del Turismo Spirituale**: *“Oh ma dai… è divertente! Ogni vita è come una vacanza diversa: a volte in India, a volte a Parigi, a volte in un ufficio postale di provincia…”*  
 **Io**: *“Non è vacanza. È prigionia.”*  
