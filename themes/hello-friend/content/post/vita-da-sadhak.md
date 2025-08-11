@@ -3,7 +3,7 @@ title = "Vita da sadhak"
 date = "2025-08-11"
 author = "Dandy"
 cover = "img/sadhak.jpeg"
-description = "..."
+description = "“Ah, che splendida giornata per svegliarsi alle sei e illuminarsi..."
 +++
 
 **[ore 6:00 – sveglia]**    
