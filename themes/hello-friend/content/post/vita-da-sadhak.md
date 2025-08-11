@@ -63,7 +63,8 @@ description = "“Ah, che splendida giornata per svegliarsi alle sei e illuminar
 **Io**: *“No, non sono superiore a nessuno.”*  
 **Ego Spirituale**: *“Ma dai, chi altri si sveglia alle sei, medita, trasmuta e sorride pure?”*  
 **Io**: *“Un vero ricercatore sa di non essere nessuno… e proprio per questo cammina.”*  
-**Ego Spirituale**: *“Va bene… ma intanto potresti almeno farti stampare dei biglietti da visita con scritto ‘Guru - risolvo i tuoi problemi esistenziali’.”*    
+**Ego Spirituale**: *“Va bene… ma intanto potresti almeno farti stampare dei biglietti da visita con scritto ‘Guru - risolvo i tuoi problemi esistenziali’.”*  
+
 **[ore 23:00 – prima di dormire]**  
 **Io**: *“Domani sarà un nuovo giorno per avanzare sul Sentiero.”*  
 **Ego del Dubbio**: *“O per inciampare di nuovo e fare il bis.”*  
