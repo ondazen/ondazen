@@ -27,9 +27,9 @@ description = "“Ah, che splendida giornata per svegliarsi alle sei e illuminar
 **[ore 12:00 – le leggi cosmiche]**  
 **Io**: *“Il mondo è governato da 48 leggi… e se scivoli ancora più in basso, diventano 96. Ogni legge è come un filo che ti trattiene.”*  
 **Ego della Logica Terrena**: *“E quindi cosa fai? Le combatti una a una?”*  
-**Io**: *“Non posso. Finché resto nella ruota del Samsara, queste leggi fanno parte della struttura stessa della terza dimensione. Sono come la gravità: non la sconfiggi, al massimo impari a camminare senza cadere troppo spesso.”*  
+**Io**: *“Non posso. Finché resto nella ruota del Samsara, queste leggi fanno parte della struttura stessa della terza dimensione. La gravità, ad esempio, non la sconfiggi, al massimo impari a camminare senza cadere troppo spesso.”*  
 **Ego della Logica Terrena**: *“E se arrivi a 192 leggi?”*  
-**Io**: *“A quel punto sei seriamente intrappolato nella ruota...”*  
+**Io**: *“A quel punto sei seriamente inguaiato nella ruota...”*  
 
 **[ore 13:00 – gestione dell’energia sessuale]**  
 **Io**: *“Sublimare, trasmutare… trasformare il piombo in oro.”*  
