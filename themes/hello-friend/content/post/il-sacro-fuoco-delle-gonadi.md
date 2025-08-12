@@ -10,7 +10,7 @@ Nella verdeggiante cittadina di Biz, che un tempo fu feudo dei Visconti, viveva 
 
 Un vecchio maestro gli aveva detto, molti anni prima:  
 
-«Il potere di creare figli è il potere di creare mondi. Se lo lasci discendere, genererai carne. Se lo lasci salire, genererai luce».  
+**«Il potere di creare figli è il potere di creare mondi. Se lo lasci discendere, genererai carne. Se lo lasci salire, genererai luce».  **
 
 Perinà aveva meditato a lungo su quelle parole. Aveva compreso che la sua energia sessuale non era soltanto un istinto, ma una corrente divina, capace di nutrire la mente come il sole nutre le piante. Così aveva scelto di trattenerla, di purificarla, di farla ascendere come un fiume in salita, verso il cuore e poi verso la fronte.  
 
@@ -21,6 +21,6 @@ Col tempo, Perinà capì che l’energia sessuale è una fiamma: se la si disper
 Un giorno, una giovane donna bussò alla sua porta. Aveva sentito parlare di lui come di un uomo che sapeva “disegnare l’anima”. Gli chiese di ritrarla.
 Mentre Perinà dipingeva, percepì che la sua energia cercava di scendere, come un fiume che vuole trovare il suo estuario. Ma la sua volontà la guidò in alto, nel cuore, e poi nella fronte. In quel momento, la tela si accese di un bagliore che non apparteneva a nessun colore conosciuto.  
 
-Quando la giovane vide il quadro, iniziò a piangere. Disse che non era il suo volto quello che vedeva, ma qualcosa di molto più profondo: «È la mia essenza… quella celata dalla pletora degli ego».  
+Quando la giovane vide il quadro, iniziò a piangere. Disse che non era il suo volto quello che vedeva, ma qualcosa di molto più profondo: **«È la mia essenza… quella celata dalla pletora degli ego».  **
 
 Perinà comprese allora che ogni creazione era un figlio invisibile, nato dall’unione tra il suo fuoco e il suo pensiero. E decise che avrebbe continuato a generare, non solo per dare vita alla carne, ma per far nascere mondi di luce.  
