@@ -3,7 +3,7 @@ title = "Prima di questa vita"
 date = "2025-08-13"
 author = "Dandy"
 cover = "img/reincarnazione.jpeg"
-description = "..."
+description = "La prima volta che la vidi, il mondo si è fermato.Non era stupore, né attrazione: era un riconoscimento che non aveva spiegazioni logiche..."
 +++
 
 La prima volta che la vidi, il mondo si è fermato.Non era stupore, né attrazione: era un riconoscimento che non aveva spiegazioni logiche, come un libro che conosci a memoria senza averlo mai aperto.  
