@@ -14,8 +14,8 @@ Poi la vedo, e tutto cambia. Il peso si dissolve, e resta un’attrazione dolce 
 
 Un giorno, durante una meditazione profonda, ebbi la visione di un foglio ingiallito:  
 
-**16 maggio 1884**  
->"Amore mio,  
+>"**16 maggio 1884**  
+Amore mio,  
 il vento porta via le foglie del giardino e ho paura che porti via anche te.  
 La febbre non ti lascia, e il tuo respiro si fa più breve ogni notte.  
 Io resto qui, seduto accanto a te, a contare i battiti che ancora posso sentire.  
