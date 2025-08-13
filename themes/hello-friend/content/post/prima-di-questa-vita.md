@@ -15,11 +15,11 @@ Poi la vedo, e tutto cambia. Il peso si dissolve, e resta un’attrazione dolce 
 Un giorno, durante una meditazione profonda, ebbi la visione di un foglio ingiallito:  
 
 **16 maggio 1884**  
-Amore mio,  
+>"Amore mio,  
 il vento porta via le foglie del giardino e ho paura che porti via anche te.  
 La febbre non ti lascia, e il tuo respiro si fa più breve ogni notte.  
 Io resto qui, seduto accanto a te, a contare i battiti che ancora posso sentire.  
-Se il cielo decidesse di prenderti, promettimi che mi aspetterai… anche se dovessero passare cento vite.  
+Se il cielo decidesse di prenderti, promettimi che mi aspetterai… anche se dovessero passare cento vite."    
 
 Terminata la meditazione, il foglio non c’era più. Ma la sensazione, sì. Era reale come la mia mano.  
 
@@ -30,8 +30,8 @@ Lei mi guardò come se avessi appena scosso una porta chiusa a chiave dentro di 
 
 Durante un’altra meditazione, ho visto un diario:  
 
-**4 ottobre 1884**  
-Oggi il cielo era minaccioso, e tu non ti sei svegliata. Ho stretto la tua mano per ore, cercando di scaldarla, ma il calore non tornava. Non ho pianto davanti a te. Ho aspettato di restare solo, e allora ho gridato contro un Dio che non mi ha risposto. Ho giurato che ti avrei trovata di nuovo.  
+>"**4 ottobre 1884**  
+Oggi il cielo era minaccioso, e tu non ti sei svegliata. Ho stretto la tua mano per ore, cercando di scaldarla, ma il calore non tornava. Non ho pianto davanti a te. Ho aspettato di restare solo, e allora ho gridato contro un Dio che non mi ha risposto. Ho giurato che ti avrei trovata di nuovo."    
 
 Questi frammenti si insinuano nella mia vita come spilli nel tessuto: non so se sono ricordi o allucinazioni.  
 Ma ogni volta che la guardo, il presente vacilla, e sento che stiamo solo riprendendo un dialogo lasciato sospeso centotrent’anni fa.  
