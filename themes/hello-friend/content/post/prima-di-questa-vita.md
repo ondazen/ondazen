@@ -6,7 +6,7 @@ cover = "img/reincarnazione.jpeg"
 description = "La prima volta che la vidi, il mondo si è fermato.Non era stupore, né attrazione: era un riconoscimento che non aveva spiegazioni logiche..."
 +++
 
-La prima volta che la vidi, il mondo si è fermato.Non era stupore, né attrazione: era un riconoscimento che non aveva spiegazioni logiche, come un libro che conosci a memoria senza averlo mai aperto.  
+La prima volta che la vidi, il mondo si è fermato. Non era stupore, né attrazione: era un riconoscimento che non aveva spiegazioni logiche, come un libro che conosci a memoria senza averlo mai aperto.  
 
 Accade sempre così: prima ancora che il mio sguardo la trovi, il mio corpo sa che lei è vicina e un macigno invisibile scende sul mio petto, comprimendo ogni respiro. Non è paura… è il dolore di qualcosa che si risveglia.  
 
