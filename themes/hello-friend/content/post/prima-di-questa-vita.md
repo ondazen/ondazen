@@ -14,7 +14,7 @@ Poi la vedo, e tutto cambia. Il peso si dissolve, e resta un’attrazione dolce 
 
 Un giorno, durante una meditazione profonda, ebbi la visione di un foglio ingiallito:  
 
-**16 maggio 1884**
+**16 maggio 1884**  
 Amore mio,  
 il vento porta via le foglie del giardino e ho paura che porti via anche te.  
 La febbre non ti lascia, e il tuo respiro si fa più breve ogni notte.  
@@ -23,7 +23,7 @@ Se il cielo decidesse di prenderti, promettimi che mi aspetterai… anche se dov
 
 Terminata la meditazione, il foglio non c’era più. Ma la sensazione, sì. Era reale come la mia mano.  
 
-Un giorno, mentre passeggiavamo, le chiesi:
+Un giorno, mentre passeggiavamo, le chiesi:  
 — _Ti capita mai di sentire che qualcosa è rimasto incompiuto, anche se non sai cosa?_  
 Lei mi guardò come se avessi appena scosso una porta chiusa a chiave dentro di lei.  
 — _Sì… e quando ti vedo, quella sensazione diventa più forte._  
