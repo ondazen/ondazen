@@ -33,8 +33,7 @@ Durante un’altra meditazione, ho visto un diario:
 >"**4 ottobre 1884**  
 Oggi il cielo era minaccioso, e tu non ti sei svegliata. Ho stretto la tua mano per ore, cercando di scaldarla, ma il calore non tornava. Non ho pianto davanti a te. Ho aspettato di restare solo, e allora ho gridato contro un Dio che non mi ha risposto. Ho giurato che ti avrei trovata di nuovo."    
 
-Questi frammenti si insinuano nella mia vita come spilli nel tessuto: non so se sono ricordi o allucinazioni.  
-Ma ogni volta che la guardo, il presente vacilla, e sento che stiamo solo riprendendo un dialogo lasciato sospeso centotrent’anni fa.  
+Questi frammenti si insinuano nella mia vita come spilli nel tessuto: non so se sono ricordi o allucinazioni. Ma ogni volta che la guardo, il presente vacilla, e sento che stiamo solo riprendendo un dialogo lasciato sospeso centotrent’anni fa.  
 
 Forse il macigno che sento prima di incontrarla è il peso di quell’ultimo giorno, e il desiderio di starle vicino è la promessa che ho fatto accanto al suo corpo freddo.  
 
