@@ -20,7 +20,7 @@ Un silenzio cadde tra loro, interrotto solo dal tintinnio delle tazze intorno e 
 
 **Oliver**: _«E se apro il cuore e lei mi rifiuta? Se do tutto me stesso e ricevo solo indifferenza?»_
 
-Sarah lo fissò negli occhi. Non c’era giudizio in quello sguardo, solo una pura tenerezza.  
+Sarah lo fissò negli occhi. Non c’era giudizio in quello sguardo, solo una tenerezza pura.  
 
 **Sarah**: _«Allora significa che hai amato. E questo ti rende vivo. Non c’è vergogna nel dare senza ricevere. C’è vergogna, semmai, nel trattenere per paura.»_  
 
