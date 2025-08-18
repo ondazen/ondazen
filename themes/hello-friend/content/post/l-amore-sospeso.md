@@ -3,10 +3,10 @@ title = "L'amore sospeso"
 date = "2025-08-18"
 author = "Dandy"
 cover = "img/palestra.jpeg"
-description = "La palestra di Zibido è sempre stato un luogo affollato: il frastuono dei pesi, l’afrore, il vociare incessante, la musica martellante..."
+description = "La palestra di Zibido è sempre stata un luogo affollato: il frastuono dei pesi, l’afrore, il vociare incessante, la musica martellante..."
 +++
 
-La palestra di Zibido è sempre stato un luogo affollato: il frastuono dei pesi, l’afrore, il vociare incessante, la musica martellante. Eppure, tra quel fragore uditivo che riempiva ogni spazio, c’erano due silenzi che si cercavano.  
+La palestra di Zibido è sempre stata un luogo affollato: il frastuono dei pesi, l’afrore, il vociare incessante, la musica martellante. Eppure, tra quel fragore uditivo che riempiva ogni spazio, c’erano due silenzi che si cercavano.  
 
 Un ragazzo e una ragazza. Non si erano mai parlati, eppure ogni volta che i loro sguardi si incrociavano, sentivano un fremito improvviso, un battito più forte, un richiamo che nessuno dei due riusciva a ignorare. Ma restavano in silenzio. Sempre. Un silenzio fatto di rimandi…“forse domani”.  
 
