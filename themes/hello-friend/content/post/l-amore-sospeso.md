@@ -34,5 +34,5 @@ Un silenzio lungo, quasi infinito. Poi, un filo di coraggio.
 
 **Ragazzo** (sussurra, ma la sua voce vibra come un giuramento eterno): _«Ti riconoscerò. Sempre. Perché gli occhi non mentono. E quando li ritroverò… questa volta ti parlerò.»_  
 
-Un ultimo sguardo. Poi il vuoto li avvolge. La palestra si dissolve come nebbia al sole, e di loro restano solo due bagliori che si intrecciano, promesse luminose lanciate all’eternità. Non un addio, ma un arrivederci.
+Un ultimo sguardo. Poi il vuoto li avvolse. La palestra svanì come nebbia al sole, e di loro restarono solo due bagliori che si intrecciavano, promesse luminose lanciate all’eternità. Non un addio, ma un arrivederci.
 
