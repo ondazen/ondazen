@@ -3,10 +3,10 @@ title = "L'amore sospeso"
 date = "2025-08-18"
 author = "Dandy"
 cover = "img/palestra.jpeg"
-description = "La palestra di Zibido è sempre stata un luogo affollato: il frastuono dei pesi, l’afrore, il vociare incessante, la musica martellante..."
+description = "La palestra di Zibido è sempre un luogo affollato: il frastuono dei pesi, l’afrore, il vociare incessante, la musica martellante..."
 +++
 
-La palestra di Zibido è sempre stata un luogo affollato: il frastuono dei pesi, l’afrore, il vociare incessante, la musica martellante. Eppure, tra quel fragore uditivo che riempiva ogni spazio, c’erano due silenzi che si cercavano.  
+La palestra di Zibido è sempre un luogo affollato: il frastuono dei pesi, l’afrore, il vociare incessante, la musica martellante. Eppure, tra quel fragore uditivo che riempiva ogni spazio, c’erano due silenzi che si cercavano.  
 
 Un ragazzo e una ragazza. Non si erano mai parlati, eppure ogni volta che i loro sguardi si incrociavano, sentivano un fremito improvviso, un battito più forte, un richiamo che nessuno dei due riusciva a ignorare. Ma restavano in silenzio. Sempre. Un silenzio fatto di rimandi…“forse domani”.  
 
@@ -18,7 +18,7 @@ Poi accadde l’impossibile. La folla scomparve, come inghiottita da un sogno in
 
 **Ragazzo** (china il capo, come per confessare un segreto antico): _«Io… sono morto qui, tra queste mura. Un infarto. Ricordo il mondo dissolversi mentre stringevo un peso troppo grande. E tu?»_  
 
-**Ragazza** (abbassando gli occhi, un velo di malinconia sul volto): _«Un incidente d’auto, tornando a casa. L’ultima cosa che ho visto sono state le luci dei fari. Poi buio.»_  
+**Ragazza** (abbassa gli occhi, un velo di malinconia sul volto): _«Un incidente d’auto, tornando a casa. L’ultima cosa che ho visto sono state le luci dei fari. Poi buio.»_  
 
 Un silenzio lungo, quasi infinito. Poi, un filo di coraggio.  
 
