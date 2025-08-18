@@ -8,11 +8,11 @@ description = "La palestra di Zibido è sempre stata un luogo affollato: il fras
 
 La palestra di Zibido è sempre stata un luogo affollato: il frastuono dei pesi, l’afrore, il vociare incessante, la musica martellante. Eppure, tra quel fragore uditivo che riempiva ogni spazio, c’erano due silenzi che si cercavano.  
 
-Un ragazzo e una ragazza. Non si erano mai parlati, eppure ogni volta che i loro sguardi si incrociavano, sentivano un fremito improvviso, un battito più forte, un richiamo che nessuno dei due riusciva a ignorare. Ma restavano in silenzio. Sempre. Un silenzio fatto di rimandi…“forse domani”.
+Un ragazzo e una ragazza. Non si erano mai parlati, eppure ogni volta che i loro sguardi si incrociavano, sentivano un fremito improvviso, un battito più forte, un richiamo che nessuno dei due riusciva a ignorare. Ma restavano in silenzio. Sempre. Un silenzio fatto di rimandi…“forse domani”.  
+
 Poi accadde l’impossibile. La folla scomparve, come inghiottita da un sogno interrotto. Restarono solo loro due, nel vuoto irreale di una palestra che non apparteneva più al tempo. La musica continuava a suonare in lontananza, ma sembrava provenire da un’altra dimensione. Le voci che un tempo riempivano lo spazio erano solo echi sbiaditi. Fu allora che compresero: non erano più vivi.  
 
-**Ragazzo** (la voce gli trema, come se parlasse per la prima volta in tutta la sua vita):  
-_«È strano, vero? Qui ci siamo sempre sfiorati tra la folla… e adesso che la folla non c’è più, ci ritroviamo soli. Solo noi due.»_  
+**Ragazzo** (la voce gli trema, come se parlasse per la prima volta in tutta la sua vita): _«È strano, vero? Qui ci siamo sempre sfiorati tra la folla… e adesso che la folla non c’è più, ci ritroviamo soli. Solo noi due.»_  
 
 **Ragazza** (con un sorriso triste, quasi fragile): _«Lo sapevo, in fondo. Che qualcosa non andava. Non sento più il cuore battere, non sento la fatica… è come allenarsi dentro un sogno lucido.»_  
 
