@@ -6,7 +6,7 @@ cover = "img/ruota.jpeg"
 description = "In un luogo dove non esiste il tempo, due tracce energetiche - un tempo amiche - si ritrovano..."
 +++
 
-In un luogo dove non esiste il tempo, due tracce energetiche - un tempo amiche - si ritrovano.  
+In una dimensione dove non esiste il tempo, due tracce energetiche - un tempo amiche - si ritrovano.  
 
 **Il pellegrino**:  
 _Ti riconosco, fratello. La veste del corpo è caduta, eppure la coscienza rimane._  
