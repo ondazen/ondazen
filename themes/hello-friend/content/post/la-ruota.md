@@ -13,6 +13,7 @@ _Ti riconosco, fratello. La veste del corpo è caduta, eppure la coscienza riman
 
 **Il disperso**:  
 _Rimane per te, forse. Io mi sento disgregare, come sabbia portata via dal vento. Nulla mi sostiene. Dov’è il calore delle mie passioni? Dov’è il sapore dei banchetti, l’ebbrezza delle donne, l’ebano dei miei arredi, il rombo delle mie auto sportive, il sostanzioso conto in banca? Non trovo nulla. Solo vuoto._  
+
 **Il pellegrino**:  
 _Quello che cercavi era fumo. Anch’io ho conosciuto la fame del corpo e le grida del desiderio, ma ho scelto di guardare oltre. Non di reprimere, ma di trasmutare. Ho imparato che la vera gioia nasce dall’auto controllo e dal donarsi agli altri._  
 
