@@ -10,7 +10,7 @@ Il quartiere di Aurelio è una distesa di palazzi color ruggine. Nel suo apparta
 
 Aurelio, con il suo impermeabile di pelle logoro e un bastone da passeggio che non usa mai per camminare, ma per “cambiare le linee temporali”, passa le giornate a rimuovere parassiti energetici con strani movimenti delle mani.  
 
-Il suo ristretto gruppo di amici lo idolatra. Ad ogni incontro sul server, lo ascoltano parlare di linee temporali elastiche, orgasmi quantici, iniziazioni attraverso il tè olistico. Una volta ha fatto ballare un cucchiaino su un tavolo, spingendolo con un colpo di tosse, e Dandy era svenuto dall’emozione.  
+Il suo ristretto gruppo di amici lo idolatra. Ad ogni incontro sul server, lo ascoltano parlare di linee temporali elastiche, orgasmi quantici, iniziazioni attraverso il tè olistico. Una volta ha fatto ballare un cucchiaino su un tavolo, spingendolo con un colpo di tosse, e Dandy è svenuto dall’emozione.  
 
 Ora, però, è arrivata la lettera. E con la lettera, la fine. Aurelio si sente come un profeta condannato alla croce, ma con meno folla e più modulistica amministrativa.  
 
