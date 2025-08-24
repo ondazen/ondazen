@@ -14,7 +14,7 @@ Il suo ristretto gruppo di amici lo idolatra. Ad ogni incontro sul server, lo as
 
 Ora, però, è arrivata la lettera. E con la lettera, la fine. Aurelio si sente come un profeta condannato alla croce, ma con meno folla e più modulistica amministrativa.  
 
-(Schermo nero. Una notifica: “**#aula-studio** – Aurelio ha avviato una chiamata vocale”. La scena si svolge interamente su Discord, ma in scena ci sono cinque postazioni illuminate da luci fredde: ognuna rappresenta un personaggio davanti al proprio PC. I microfoni si accendono e spengono, lucine verdi e rosse pulsano. Rumore di tastiere. Una voce metallica annuncia:)  
+(Schermo nero. Una notifica: “**#aula-studio** – Aurelio ha avviato una chiamata vocale”. La scena si svolge interamente su Discord, ma in scena ci sono cinque postazioni illuminate da luci fredde: ognuna rappresenta un personaggio davanti al proprio PC. I microfoni si accendono e spengono, lucine verdi e rosse pulsano. Rumore di tastiere. Una voce metallica annuncia)  
 
 **VOCE DISCORD**:  
 _Connessione stabile. Nessuno ha ancora attivato la webcam._  
@@ -101,7 +101,7 @@ _Difendiamolo! Mandiamo una bomba pranica contro la clinica!_
 
 **AURELIO**:  
 _Non serve. È finita. Mi porto via solo questo_:  
-(solleva un barattolo di miele davanti alla webcam, etichetta “DISCOUNT”).  
+(solleva un barattolo di miele davanti alla webcam, etichetta “DISCOUNT”)  
 _Il mio nettare eterico._  
 
 (Rumore reale di bussate alla porta di Aurelio. Lui guarda in camera, sorride.)  
@@ -109,7 +109,7 @@ _Il mio nettare eterico._
 **AURELIO**:  
 _Ricordate, ragazzi: trasmutate l’energia sessuale… e se non ci riuscite almeno scopate._  
 
-(Si disconnette. Icona del mago che diventa grigia. Silenzio. Poi Stefania sussurra, con il microfono che gracchia:)  
+(Si disconnette. Icona del mago che diventa grigia. Silenzio. Poi Stefania sussurra, con il microfono che gracchia)  
 
 **STEFANIA**:  
 _È asceso._  
