@@ -6,7 +6,7 @@ cover = "img/caos.jpeg"
 description = "Si incontrano spesso, come per caso, negli stessi spazi: una palestra, un supermercato, un ufficio postale..."
 +++
 
-Si incontrano spesso, come per caso, negli stessi spazi: una palestra, un supermercato, un ufficio postale. A prima vista, nulla accade: due persone educate, gentili, pacate: nessun gesto, nessuna parola. L’aria rimane composta, quasi neutra.  
+Si incontrano spesso, come per caso, negli stessi spazi: una palestra, un supermercato, un ufficio postale. A prima vista, nulla accade: due persone educate, gentili, pacate. Nessun gesto, nessuna parola. L’aria rimane composta, quasi neutra.  
 
 Eppure, quando i loro sguardi si sfiorano anche solo per un istante, qualcosa di invisibile esplode dentro di loro. È un terremoto silenzioso, un caos che spezza l’ordine delle cose. I cuori accelerano come tamburi, le mani vorrebbero tremare, ma restano immobili. Ogni muscolo è costretto a una calma apparente, mentre dentro un mare in burrasca li sballotta da una parte all’altra senza tregua.  
 
