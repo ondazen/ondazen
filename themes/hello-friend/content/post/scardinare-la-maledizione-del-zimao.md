@@ -3,7 +3,7 @@ title = "Scardinare la maledizione del Zi-Mao"
 date = "2025-12-14"
 author = "Dandy"
 cover = "img/zimao.jpeg"
-description = "..."
+description = "Sai, le tue relazioni sono così complicate perché dentro di te mancano i confini..."
 +++
 
 KAHN:  
