@@ -64,4 +64,4 @@ KAHN:
 Se applichi la regola del rallentare e definire i confini, la maledizione del Zi-Mao si spezzerà.  
 
 IO:  
-Allora inizierò da subito. Rallento, chiarisco, costruisco il mio recinto.  
+Allora inizierò da subito. Rallento, chiarisco, costruisco il mio recinto.
