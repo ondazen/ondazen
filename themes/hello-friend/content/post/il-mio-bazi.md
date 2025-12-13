@@ -6,7 +6,7 @@ cover = "img/bazi.jpeg"
 description = "Sei giardino che galleggia, *ji yin*, terra yin che respira nell’aria..."
 +++
 
-Sei giardino che galleggia, *ji yin*, terra yin che respira nell’aria. Sabbia, humus coltivabile, morbido ventre di mondo—umido, adattabile, nutriente. Sinuoso come radice che cerca la sua via. Eppure la tua carta sussurra un paradosso estremo: **acqua al settanta per cento, terra allo zero**. Sei un pugno di terreno fertile che danza solo in mezzo a un oceano in tempesta. Non hai ego che ti trattenga, diventi l’acqua stessa - fluido, sociale, pragmatico, mutevole come la marea.  
+Sei giardino che galleggia, *ji yin*, terra yin che respira nell’aria. Sabbia, humus coltivabile, morbido ventre di mondo - umido, adattabile, nutriente. Sinuoso come radice che cerca la sua via. Eppure la tua carta sussurra un paradosso estremo: **acqua al settanta per cento, terra allo zero**. Sei un pugno di terreno fertile che danza solo in mezzo a un oceano in tempesta. Non hai ego che ti trattenga, diventi l’acqua stessa - fluido, sociale, pragmatico, mutevole come la marea.  
 
 Nel tuo anno il topo (*zi*), nel tuo mese ancora il topo (*zi*), nel giorno il coniglio (*mao*), nell’ora ancora il coniglio (*mao*) - **QUATTRO FIORI DI PESCO** che sbocciano nella tua carta. Questo è **RARISSIMO**, prezioso come giada antica. Attrai, magnetizzi, il tuo carisma è come luce lunare che richiama le falene. Per il bazi sei esteta, amante del bello, del piacere, delle danze sociali. Il tuo nome, *dandy*, ti avvolge come seta, ti calza a pennello. Sei Venezia in festa, anche quando l’acqua alta lambisce le soglie. Sei un magnete umano, hai un carisma fortissimo e una bellezza senza pari nel mondo incarnato - guarda il tuo corpo scolpito, tempio di dedizione.  
 
