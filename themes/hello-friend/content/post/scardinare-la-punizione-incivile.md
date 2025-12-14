@@ -6,10 +6,10 @@ cover = "img/zimao.jpeg"
 description = "Sai, le tue relazioni sono così complicate perché dentro di te mancano i confini..."
 +++
 
-KAHN:  
+_KAHN_:  
 Sai, le tue relazioni sono così complicate perché dentro di te mancano i confini. Sei fatto di terra che segue l’acqua: tendi a fonderti completamente con chi ami. Non riesci a dire di no, diventi quello che l’altro vuole che tu sia. All’inizio sembra magico, lo so, ma poi finisci per sentirti usato, per perdere te stesso, finché non scappi o implodi.  
 
-IO:  
+_IO_:  
 Sì… è vero. Succede spesso. E dopo mi chiedo sempre come ci sono finito.  
 
 KAHN:  
