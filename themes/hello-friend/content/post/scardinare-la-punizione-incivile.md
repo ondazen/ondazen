@@ -2,7 +2,7 @@
 title = "Scardinare la punizione incivile"
 date = "2025-12-14"
 author = "Kahn / Dandy"
-cover = "img/bazi.jpeg"
+cover = "img/zimao.jpeg"
 description = "Sei giardino che galleggia, *ji yin*, terra yin che respira nell’aria..."
 +++
 
