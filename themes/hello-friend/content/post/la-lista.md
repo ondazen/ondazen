@@ -11,7 +11,7 @@ La lista non era un oggetto. Era un peso che gli gravava sul cuore.
 Giaceva sul tavolo come un animale inerme, fatta di pagine fitte di nomi femminili scritti con diversi colori e calligrafie, come se ogni nome fosse stato vergato in un momento differente della sua vita, con una mano diversa, con una diversa temperatura del cuore. Alcuni nomi erano completi, altri spezzati, altri ancora ridotti a una semplice iniziale, come se la memoria si fosse rifiutata di concedere di più.  
 
 Non conosceva quelle donne.  
-O meglio: non ne conosceva i nomi, ma conosceva perfettamente il malessere che aveva lasciato in loro.  
+O meglio: non ne conosceva i nomi - quelli sulla lista erano perlopiù di fantasia, un gioco di associazione - ma conosceva perfettamente il malessere che aveva lasciato in loro.  
 
 Un’attesa.  
 Un fraintendimento.  
