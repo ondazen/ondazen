@@ -3,7 +3,7 @@ title = "Il lavoro più duro del mondo"
 date = "2026-02-03"
 author = "Dandy"
 cover = "img/psicopompo.jpg"
-description = "..."
+description = "«Perché nessuno riesce più a percepire la mia presenza? Che sta succedendo?»..."
 +++
 
 Alex: *«Perché nessuno riesce più a percepire la mia presenza? Che sta succedendo?»*    
