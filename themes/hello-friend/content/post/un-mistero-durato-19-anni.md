@@ -72,7 +72,7 @@ Maestro: *Se resti nella tranquillità sovrana, sì. Non cercare di riprodurre i
 
 Dandy: *E le relazioni?*  
 
-Maestro: *Torneranno semplici.Non perché il tempo è favorevole ma perché tu sei diventato favorevole.*  
+Maestro: *Torneranno semplici. Non perché il tempo è favorevole ma perché tu sei diventato favorevole.*  
 
 Dandy: *Quando?*  
 
