@@ -2,7 +2,7 @@
 title = "Tommaso non capisce. E nemmeno io."
 date = "2026-03-26"
 author = "Dandy"
-cover = "tommaso-non-capsice.jpeg"
+cover = "tommaso-non-capisce.jpeg"
 description = "Sono seduto su una panchina da quarantadue minuti. Lo so perché ho controllato l’orologio per ben quarantadue volte..."
 +++
 
