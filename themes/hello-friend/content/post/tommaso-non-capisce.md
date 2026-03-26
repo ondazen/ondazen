@@ -2,7 +2,7 @@
 title = "Tommaso non capisce. E nemmeno io."
 date = "2026-03-26"
 author = "Dandy"
-cover = "img/tommaso-non-capisce.jpeg"
+cover = "tommaso-non-capsice.jpeg"
 description = "Sono seduto su una panchina da quarantadue minuti. Lo so perché ho controllato l’orologio per ben quarantadue volte..."
 +++
 
@@ -41,7 +41,6 @@ Apprezzo l’onestà. Mia nonna avrebbe detto la stessa cosa con meno franchezza
 **Bambina**: (scende dalla panchina, riprende la palla) Le persone tristi aspettano sempre che qualcuno gli chieda perché sono tristi. Forse lei aspetta che tu le chieda.  
 **Io**: E se invece non gliene importa niente di me?  
 Si gira un secondo, con quell’espressione che i bambini riservano alle domande stupide degli adulti.  
-
 **Bambina**: Se non gliene importasse, non farebbe finta. Le persone che non importano, le ignori sempre. Non solo qualche volta.  
 
 Torna a correre. I pantaloni del fratello sono totalmente impregnati di fango.  
