@@ -23,7 +23,7 @@ Mi viene quasi da ridere. Quarantadue minuti di elucubrazioni esistenziali, e la
 
 Non si può confutare una logica del genere. Le faccio posto sulla panchina. Si arrampica con la determinazione di chi scala una montagna.
 
-**Io**: C’è una persona. A volte mi guarda come se fossi la cosa più interessante della stanza. Poi, il giorno dopo, mi guarda come se fossi un appendiabiti. Uguale, ma inutile. O meglio, non mi guarda proprio.  
+**Io**: C’è una persona. A volte mi guarda come se fossi la cosa più interessante della stanza. Poi, il giorno dopo, mi guarda come se fossi un appendiabiti. Uguale, ma inutile.  
 **Bambina**: (dondola i piedi, pensierosa) Anche io faccio così con Tommaso.  
 **Io**: Chi è Tommaso?  
 **Bambina**: Un bambino della mia classe. A volte mi fa arrabbiare. Allora non gli parlo.  
