@@ -2,8 +2,8 @@
 title = "Tommaso non capisce. E nemmeno io."
 date = "2026-03-26"
 author = "Dandy"
-cover = "img/tommaso_non_capisce.jpeg"
-description = "..."
+cover = "img/tommaso-non-capisce.jpeg"
+description = "Sono seduto su una panchina da quarantadue minuti. Lo so perché ho controllato l’orologio per ben quarantadue volte..."
 +++
 
 Sono seduto su una panchina da quarantadue minuti. Lo so perché ho controllato l’orologio per ben quarantadue volte. Lei mi ha nuovamente ignorato stamattina. Vorrei capire cosa ho sbagliato, ma il nocciolo è che probabilmente non ho sbagliato nulla, e questo, paradossalmente, è il problema più grande.
