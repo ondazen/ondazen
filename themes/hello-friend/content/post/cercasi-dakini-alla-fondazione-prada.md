@@ -13,13 +13,13 @@ Mi giro con aria circospetta e la vedo lì, accanto a me, in tutto il suo splend
 **Io**: segue la proporzione aurea e la cromia mi ricorda un cielo crepuscolare.  
 **Sconosciuta**: quindi ti piace?  
 **Io**: sì, è esteticamente gradevole. Lo appenderei sopra il divano di casa.  
-**Sconosciuta**: e di questo cosa ne pensi?  
+**Sconosciuta**: e di questa cosa ne pensi?  
 **Io**: uhm. L’autore deve avere conoscenze gnostiche.  
 **Sconosciuta**: spiegami meglio.  
 **Io**: sembra una rappresentazione degli aggregati egoici che abitano dentro di noi.  
 **Sconosciuta**: lo sapevo.  
 
-Sorrido per la sua esclamazione, e non mi stupirei se fosse anche lei un’alchimista.
+Sorrido per la sua esclamazione, e non mi stupirei se anche lei fosse un’alchimista.
 
 **Io**: cosa vuoi dire?  
 **Sconosciuta**: sentivo un campo energetico insolito e adesso me ne hai dato conferma. Appartieni alla cerchia di Aion?  
