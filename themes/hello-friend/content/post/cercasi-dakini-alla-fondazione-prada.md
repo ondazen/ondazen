@@ -33,7 +33,7 @@ Lei sorride con aria compiaciuta, come se non si aspettasse che fossi così prep
 **Io**: chi ti ha mandato?  
 **Sconosciuta**: ma davvero? Non ricordi tutte le volte che mi hai invocato?  
 **Io**: quindi mi ascoltavi?  
-**Sconosciuta**: certo. Prendo in seria considerazione i praticanti seri come te.  
+**Sconosciuta**: certo. Prendo in seria considerazione i praticanti come te.  
 
 Rimango in silenzio un momento, cercando le parole giuste. Poi mi rendo conto che non ne ho bisogno, lei le conosce già.  
 
