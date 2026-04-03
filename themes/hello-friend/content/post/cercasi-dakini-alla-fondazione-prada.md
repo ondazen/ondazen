@@ -22,7 +22,7 @@ Mi giro con aria circospetta e la vedo lì, accanto a me, in tutto il suo splend
 Sorrido per la sua esclamazione, e non mi stupirei se anche lei fosse un’alchimista.
 
 **Io**: cosa vuoi dire?  
-**Sconosciuta**: sentivo un campo energetico insolito e adesso me ne hai dato conferma. Appartieni alla cerchia di Aion?  
+**Sconosciuta**: avvertivo un campo energetico insolito e adesso me ne hai dato conferma. Appartieni alla cerchia di Aion?  
 **Io**: come fai a saperlo? Chi sei?  
 **Sconosciuta**: qualcuno che aspettavi da lungo tempo. Non bisogna mai perdere le speranze.  
 **Io**: sei forse una dakini?  
