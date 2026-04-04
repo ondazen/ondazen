@@ -27,4 +27,4 @@ Ho infilato un dito tra le griglie, ma non ci arrivo. Ho cercato su YouTube “c
 Ho pensato che in fondo stava bene lì. Al riparo, al fresco, lontano dalle situazioni imbarazzanti. Ho pensato che forse lo lascio lì ancora per un po’.
 Poi sono andato a prendere un caffè, ho guardato il telefono, ho risposto a tre messaggi di lavoro e sono tornato a casa. Domani passo di nuovo in via Mazzini. Vediamo se c’è ancora.
 
-Probabilmente sì, tanto il mio cuore non ha le gambe.  
+Probabilmente sì...il mio cuore non ha le gambe.  
