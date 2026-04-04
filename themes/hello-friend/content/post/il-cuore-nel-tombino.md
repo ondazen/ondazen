@@ -3,7 +3,7 @@ title = "Il cuore nel tombino"
 date = "2026-04-04"
 author = "Dandy"
 cover = "img/tombino.jpg"
-description = "..."
+description = "Stamattina ho scoperto dove si trova il mio cuore: è sul fondo di un tombino..."
 +++
 
 Stamattina ho scoperto dove si trova il mio cuore: è sul fondo di un tombino, in via Mazzini, tra un sasso grigio e quello che sembra il tappo di una bottiglia di Fanta. Lo riconosco perché è rosso e ha quella forma triviale che usano sui biglietti di San Valentino. Non pensavo fosse davvero così, credevo fosse più anonimo, più simile a un fegato.
