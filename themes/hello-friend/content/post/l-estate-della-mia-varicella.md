@@ -18,7 +18,8 @@ Mi sono seduto sul sofà, alle tre del pomeriggio, con la luce che entrava crude
 
 **SÉ SUPERIORE**: Certo, certo. E il filtro seppia che ci hai messo sopra, quello serviva a evidenziare meglio le lesioni cutanee?  
 
-**EGO**: Serviva a dare un tocco artistico alla sofferenza. C’è una differenza tra un uomo che soffre e un uomo che soffre con classe.                                                                                                                                 
+**EGO**: Serviva a dare un tocco artistico alla sofferenza. C’è una differenza tra un uomo che soffre e un uomo che soffre con classe.  
+
 **SÉ SUPERIORE**: Sei ridicolo.  
 
 **EGO**: Sono umano. Che poi, scusa, tu chi saresti, il monaco tibetano della situazione? Fino a due giorni fa eri quello che si preoccupava se la skincare fosse coerente con il protocollo coreano.  
