@@ -31,6 +31,7 @@ Mi sono seduto sul sofà, alle tre del pomeriggio, con la luce che entrava crude
 Mia madre mi ha chiamato al telefono, preoccupata, chiedendomi se avessi la febbre. Le ho risposto che l’unica cosa che brucia, in questo momento, è la mia autostima. Lei ha riso, pensando fosse una battuta. Non lo era del tutto.  
 
 **SÉ SUPERIORE**: Potresti approfittarne, sai? Per riflettere. Sul fatto che hai passato dodici mesi a scolpire un tempio e ti sei dimenticato di abitarlo.  
+
 **EGO**: Adesso arriva la lezioncina zen. Aspetta, fammi indovinare: “il corpo è un guscio”, “la vera bellezza è dentro”, “impara ad amarti anche coperto di crosticine”.  
 
 **SÉ SUPERIORE**: Più o meno sì.  
