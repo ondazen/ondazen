@@ -6,7 +6,7 @@ cover = "img/varicella.jpg"
 description = "Ricorderò l’estate 2026, l’estate del cavallo di fuoco, secondo l’astrologia cinese, come l’estate della mia varicella..."
 +++
 
-Ricorderò l’estate 2026, l’estate del cavallo di fuoco, secondo l’astrologia cinese, come l’estate della mia varicella. Mi ha colto di soppiatto, è arrivata alla chetichella senza darmi segnali evidenti, e nel giro di quarantotto ore mi sono trasformato in Freddy Krueger, il protagonista del film horror Nightmare. Dopo un intero anno di sacrifici per massimizzare il mio aspetto, tra allenamenti, dieta e skincare, è bastato un arco temporale di qualche ora per vanificare tutto. È stato un duro colpo inferto all’ego della vanità, a cui piace guardarsi allo specchio e compiacersi dei risultati ottenuti. In questi ultimi anni ho costruito la mia centratura e stabilità intorno al mio aspetto. Ma ciò è risultato essere troppo fragile, perché una malattia fa cadere tutto il castello di carte istantaneamente.  
+Ricorderò l’estate 2026, l’estate del cavallo di fuoco, secondo l’astrologia cinese, come l’estate della mia varicella. Mi ha colto di soppiatto, è arrivata alla chetichella senza darmi segnali evidenti, e nel giro di quarantotto ore mi sono trasformato in Freddy Krueger, il protagonista del film horror Nightmare. Dopo un intero anno di sacrifici per massimizzare il mio aspetto, tra allenamenti, dieta e skincare, è bastato un arco temporale di qualche ora per vanificare tutto. È stato un duro colpo inferto all’ego della vanità, a cui piace guardarsi allo specchio e compiacersi dei risultati ottenuti. In questi ultimi anni ho costruito la mia centratura e stabilità intorno al mio aspetto. Ma ciò è risultato essere troppo fragile, perché una malattia fa cadere il castello di carte istantaneamente.  
 
 Mi sono seduto sul sofà, alle tre del pomeriggio, con la luce che entrava crudele dal finestrone del soggiorno e illuminava ogni singola pustola come un riflettore da sala operatoria. È stato lì che ho sentito le due voci. Le chiamo così per comodità: l’Ego della Vanità (che indossa sempre un profumo diverso, anche quando non esce di casa o sta per coricarsi) e il Sé Superiore (che invece non porta niente, nemmeno le mutande, a giudicare da come se ne infischia delle apparenze).  
 
@@ -26,7 +26,7 @@ Mi sono seduto sul sofà, alle tre del pomeriggio, con la luce che entrava crude
 
 **SÉ SUPERIORE**: Fino a due giorni fa non avevo trentasette bollicine sul collo che sembrano una collana di corallo avariato.  
 
-**EGO**: Trentotto. Ne ho contate un’altra stamattina, vicino all’orecchio. Ha un che di elegante, in realtà, se ci pensi. Come i nei di Cindy Crawford, ma distribuiti con meno criterio e più prurito.  
+**EGO**: Trentotto. Ne ho contata un’altra stamattina, vicino all’orecchio. Ha un che di elegante, in realtà, se ci pensi. Come i nei di Cindy Crawford, ma distribuiti con meno criterio e più prurito.  
 
 Mia madre mi ha chiamato al telefono, preoccupata, chiedendomi se avessi la febbre. Le ho risposto che l’unica cosa che brucia, in questo momento, è la mia autostima. Lei ha riso, pensando fosse una battuta. Non lo era del tutto.  
 
