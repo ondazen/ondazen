@@ -12,9 +12,9 @@ Mi sono seduto sul sofà, alle tre del pomeriggio, con la luce che entrava crude
 
 **EGO DELLA VANITÀ**: Guardami. Guardaci. Siamo un paesaggio lunare. Un anno di skincare buttato nel cesso per colpa di un virus che normalmente si becca a sei anni, quando ancora non hai idea di cosa sia un selfie ben fatto.  
 
-**SÉ SUPERIORE**: Ti sei guardato allo specchio per venti minuti buoni. Ti sei anche fatto due foto. Chi dovrebbe vederle? il dermatologo o pensi di metterle su Tinder per intenerire qualche crocerossina?  
+**SÉ SUPERIORE**: Ti sei guardato allo specchio per venti minuti buoni. Ti sei anche fatto due foto. Chi dovrebbe vederle? Il dermatologo o pensi di metterle su Tinder per intenerire qualche crocerossina?  
 
-**EGO**: Il dermatologo ovviamente.  
+**EGO**: Il dermatologo, ovviamente.  
 
 **SÉ SUPERIORE**: Certo, certo. E il filtro seppia che ci hai messo sopra, quello serviva a evidenziare meglio le lesioni cutanee?  
 
