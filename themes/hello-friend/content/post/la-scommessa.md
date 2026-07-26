@@ -3,7 +3,7 @@ title = "La scommessa"
 date = "2026-07-26"
 author = "Dandy"
 cover = "img/scommessa.jpg"
-description = "..."
+description = "Maurice Ravel è morto nel 1937, quindi tecnicamente quello che sto per raccontarvi non è mai accaduto..."
 +++
 
 Maurice Ravel è morto nel 1937, quindi tecnicamente quello che sto per raccontarvi non è mai accaduto, almeno non in questa dimensione, e anche la questione della scommessa non so se sia vera, perché non ne ho mai più avuto conferma.  
