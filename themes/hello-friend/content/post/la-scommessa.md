@@ -14,7 +14,7 @@ Ero accovacciato davanti al giradischi, come sempre, con il mio invidiatissimo o
 
 “Sono quello del disco” confermò, con la pazienza di chi ha già risposto a questa domanda decine di volte, in altrettanti soggiorni di altrettanti bambini con il cronometro in mano.   
 
-“Perché hai usato solo le sette note naturali e non le alterazioni? Eri povero?”(all’epoca non sapevo si chiamassero alterazioni, sebbene sapevo che il mio pianoforte aveva dei tasti neri che alteravano il suono delle note naturali)  
+“Perché hai usato solo le sette note naturali e non le alterazioni? Eri povero?”(all’epoca non sapevo si chiamassero alterazioni, sebbene sapessi che il mio pianoforte aveva dei tasti neri che alteravano il suono delle note naturali)  
 
 Sorrise. Non nel modo in cui sorridono gli adulti quando in realtà vorrebbero sculacciarti, ma in un altro modo, più raro. “Non ero povero. Ero ambizioso. C’è una bella differenza, anche se da fuori non sembra esserci distinzione.”  
 
