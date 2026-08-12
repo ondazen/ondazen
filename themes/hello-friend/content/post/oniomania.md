@@ -6,7 +6,7 @@ cover = "img/amazon.jpg"
 description = "Il corriere consegnerà il pacco questo pomeriggio - fascia oraria 14-21 - che l’algoritmo di tracciamento definisce ottimale..."
 +++
 
-Il corriere consegnerà il pacco questo pomeriggio - fascia oraria 14-21 - che l’algoritmo di tracciamento definisce ottimale e io definisco una forma di tortura psicologica non ancora contemplata dalla Convenzione di Ginevra). Ho ordinato ieri sera alle 19:52, in un momento di lucidità chimica che gli specialisti chiamano dopamina e io chiamo amore. Vorrei, però, sottolineare un paio di aspetti:  
+Il corriere consegnerà il pacco questo pomeriggio - fascia oraria 14-21 - che l’algoritmo di tracciamento definisce ottimale e io definisco una forma di tortura psicologica non ancora contemplata dalla Convenzione di Ginevra. Ho ordinato ieri sera alle 19:52, in un momento di lucidità chimica che gli specialisti chiamano dopamina e io chiamo amore. Vorrei, però, sottolineare un paio di aspetti:  
 
 1. l’oggetto in questione, un siero coreano alla bava di lumaca, non mi serve, considerato che ne possiedo già sei esemplari identici, ancora sigillati, che fissano il muro del cassetto con lo stesso disprezzo delle mie ex fidanzate;  
 2. so già, con la stessa granitica certezza con cui so che domani sorgerà il sole, che quando il pacco arriverà non lo aprirò. Lo poserò sul tavolo dell’ingresso, lo contemplerò per qualche istante come si contempla un trofeo di caccia, e poi tornerò su Amazon a cercarne un altro.  
