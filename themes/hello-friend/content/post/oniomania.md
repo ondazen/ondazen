@@ -37,7 +37,7 @@ SÉ SUPERIORE: Ne possiedi nove. Tutte identiche. Sembri un collezionista di fra
 
 EGO: Questa però ha la zip laterale.  
 
-SÉ SUPERIORE: (pausa) Quella te la concedo. Perché anch’io, in fondo, sono debole davanti a una zip laterale ben posizionata.  
+SÉ SUPERIORE: (pausa) Quella te la concedo. Perché anch’io, in fondo, sono debole davanti a una zip laterale ben confezionata.  
 
 EGO: Gli integratori, però, quelli servono davvero.  
 
