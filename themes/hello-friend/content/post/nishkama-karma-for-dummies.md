@@ -3,7 +3,7 @@ title = "Nishkāma Karma for dummies"
 date = "2026-08-18"
 author = "Dandy"
 cover = "img/arjuna.jpg"
-description = "..."
+description = "Il Nishkāma Karma, spiego a Giulio, è l'arte di agire senza aspettarsi nulla in cambio. Agisci, dai tutto te stesso..."
 +++
 
 Il Nishkāma Karma, spiego a Giulio, è l'arte di agire senza aspettarsi nulla in cambio. Agisci, dai tutto te stesso, ma lasci che il frutto dell'azione marcisca dove vuole, senza rincorrerlo per il quartiere.  
