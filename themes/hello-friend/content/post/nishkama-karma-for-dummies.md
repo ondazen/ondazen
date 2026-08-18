@@ -10,7 +10,7 @@ Il Nishkāma Karma, spiego a Giulio, è l'arte di agire senza aspettarsi nulla i
 
 Giulio mi guarda come se avessi appena proposto di donare un rene a uno sconosciuto per una scommessa persa.  
 
-“Quindi mi stai dicendo,” fa, allungandosi sulla sedia con la lentezza di chi si appresta a smontarti pezzo per pezzo, “che se oggi pomeriggio pianto un albero di limoni, e quei limoni cadono prematuramente perché la pianta ha prodotto più fiori del dovuto, o se i frutti crescono con forme strane, allungate, asimmetriche o con protuberanze simili a tentacoli, o ancora se Insetti e patogeni attaccano direttamente la buccia o l'interno del limone deteriorandolo, io dovrei essere ugualmente soddisfatto? Solo perché ho agito pienamente?”  
+“Quindi mi stai dicendo,” fa, allungandosi sulla sedia con la lentezza di chi si appresta a smontarti pezzo per pezzo, “che se oggi pomeriggio pianto un albero di limoni, e quei limoni cadono prematuramente perché la pianta ha prodotto più fiori del dovuto, o se i frutti crescono con forme strane, allungate, asimmetriche o con protuberanze simili a tentacoli, o ancora se insetti e patogeni attaccano direttamente la buccia o l'interno del limone deteriorandolo, io dovrei essere ugualmente soddisfatto? Solo perché ho agito pienamente?”  
 
 “Esatto.”  
 
