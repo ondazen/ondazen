@@ -20,7 +20,7 @@ Riporto qui la trascrizione dell’ultima seduta, avvenuta stanotte alle 3:14, m
 
 Provo a controbattere, ma Io Profondo prosegue implacabile, come fa sempre quando sa di avere ragione e io no.  
 
-**IO PROFONDO**: Ti faccio un altro esempio, magari più elegante. Sai come funziona il GPS quando perde il segnale? “Ricalcolo del percorso”. Ecco, tu sei quello. Lei incrocia per un attimo il tuo sguardo, tu ricalcoli il percorso e trovi un modo nuovo, sempre più fantasioso, per interpretarlo come un gesto carico di significato. Ti sei inventato che il suo sguardo di ieri fosse diverso dallo sguardo di lunedì. Più carico. Più caldo, hai detto. Più caldo di due gradi centigradi, forse, in un corridoio con l’aria condizionata a palla.  
+**IO PROFONDO**: Ti faccio un altro esempio, magari più elegante. Sai come funziona il GPS quando perde il segnale? “Ricalcolo del percorso”. Ecco, tu sei quello. Lei incrocia per un attimo il tuo sguardo, tu ricalcoli il percorso e trovi un modo nuovo, sempre più fantasioso, per interpretarlo come un gesto carico di significato. Ti sei inventato che il suo sguardo di ieri fosse diverso dallo sguardo di lunedì. Più caldo, hai detto. Più caldo di due gradi centigradi, forse, in un corridoio con l’aria condizionata a palla.  
 
 **IO SUPERFICIALE**: Magari è solo timida.  
 
