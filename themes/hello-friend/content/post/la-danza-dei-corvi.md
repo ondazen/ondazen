@@ -45,10 +45,10 @@ BRANIK
 *“Eppure tu mi chiami ogni notte. Il tuo corpo mi cerca come un lupo cerca il calore nella neve.”*
 
 LEIRE
-*“Ti voglio… ma voglio di più. Voglio la fiamma. Il comando. La paura che lei incute.”*
+*“Ti voglio... ma voglio di più. Voglio la fiamma. Il comando. La paura che lei incute.”*
 
 Branik le sorrise, un sorriso troppo calmo.
-*“La paura… si può assaggiare. Ma ha un prezzo.”*
+*“La paura... si può assaggiare. Ma ha un prezzo.”*
 
 I primi bisbigli giunsero dalla taverna. Gente che parlava di strani lumi nei boschi, di urla e ombre. Una bambina che aveva visto una donna nuda fluttuare nel fiume. Preti allertati. Inquisitori in arrivo.
 
@@ -66,7 +66,7 @@ MAESA
 Durante la notte dell’arresto, Branik fu il primo a parlare. Gli occhi bassi, il corpo apparentemente spezzato.
 
 BRANIK (in catene)
-*“Mi hanno sedotto… ammaliato… costretto. Sono un uomo debole, padre inquisitore. Ma non sono un servo del demonio.”*
+*“Mi hanno sedotto... ammaliato... costretto. Sono un uomo debole, padre inquisitore. Ma non sono un servo del demonio.”*
 
 E uno dopo l’altro, fece i nomi. Maesa. Leire. Rialta. Tutte. Anche quelle che avevano solo curato o sognato troppo.
 
