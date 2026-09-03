@@ -14,16 +14,16 @@ Metto tutto nero su bianco, pro e contro, perché sono una persona metodica anch
 
 **PRO**  
 
-Alterazione dello stato di coscienza (finalmente qualcosa di diverso dallo scroll infinito su YouTube)  
-Esperienza paragonabile alla premorte, senza il fastidio di dover effettivamente morire  
-Presunta telepatia (utile per scoprire cosa pensa davvero la gente di me)  
-Visione alternativa della realtà, con reticoli e dimensioni sovrapposte (suona bene su un biglietto da visita)  
+A. Alterazione dello stato di coscienza (finalmente qualcosa di diverso dallo scroll infinito su YouTube)  
+B. Esperienza paragonabile alla premorte, senza il fastidio di dover effettivamente morire  
+C. Presunta telepatia (utile per scoprire cosa pensa davvero la gente di me)  
+D. Visione alternativa della realtà, con reticoli e dimensioni sovrapposte (suona bene su un biglietto da visita)  
 
 **CONTRO**  
 
-Si vomita, tantissimo, con dovizia di particolari  
-Alterazione della pressione sanguigna  
-Perdita totale del controllo, che è più o meno la definizione di "vacanza andata male"  
+A. Si vomita, tantissimo, con dovizia di particolari  
+B. Alterazione della pressione sanguigna  
+C. Perdita totale del controllo, che è più o meno la definizione di "vacanza andata male"  
 
 I pro vincono ai punti, come sempre quando la lista la scrivo io. Trovo online un pacchetto tutto compreso a Wayllapampa, Cusco, Perù: 1.250 euro, volo escluso, quindi altri 1.250 euro per raggiungere il posto dove pagherò per stare male volontariamente. Prenoto tutto d'impulso, perché tirarsi indietro dopo aver già inserito i dati della carta di credito è una forma di codardia che non mi posso permettere. A casa dico che parto per lavoro sette giorni. Tecnicamente non mento: vado a lavorare sodo sul mio apparato digerente.  
 
