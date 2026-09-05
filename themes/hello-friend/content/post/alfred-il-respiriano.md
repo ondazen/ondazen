@@ -6,7 +6,7 @@ cover = "img/respiriano.jpg"
 description = "Oggi ho conosciuto un tipo molto particolare, un certo Alfred, osteopata presso il centro sportivo David Lloyd..."
 +++
 
-Oggi ho conosciuto un tipo molto particolare, un certo Alfred, osteopata presso il centro sportivo David Lloyd, mani da chirurgo e sguardo da chi appartiene ad una setta. Dopo i convenevoli mi confida di essere un respiriano (chissà perché la gente mi fa sempre queste confessioni). Penso subito a una malattia rara, o a una nazionalità inventata di sana pianta, tipo quelli che dicono “sono per un quarto cherokee” per sembrare più interessanti alle ragazze.  
+Oggi ho conosciuto un tipo molto particolare, un certo Alfred, osteopata presso il centro sportivo David Lloyd, mani da chirurgo e sguardo da setta. Dopo i convenevoli mi confida di essere un respiriano (chissà perché la gente mi fa sempre queste confessioni). Penso subito a una malattia rara, o a una nazionalità inventata di sana pianta, tipo quelli che dicono “sono per un quarto cherokee” per sembrare più interessanti alle ragazze.  
 
 “Mi nutro di prana,” dice. “Non mangio cibi solidi. Al massimo qualche infuso.”  
 
