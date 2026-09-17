@@ -31,7 +31,7 @@ A questo punto strappa un tovagliolo di carta e comincia a scrivere, con la graf
 Il postino di suo cugino Marco si è licenziato nel 2019 e da allora nessuno sa dove sia. "Se un postino può sparire, può sparire chiunque. La catena si spezza."  
 Sua nonna, 94 anni, non ha mai posseduto un telefono. "Lei è un'isola. Un'isola non ha gradi di separazione, ha solo il mare intorno."  
 
-Ha calcolato che tra lui e un tizio incontrato una volta sola a un matrimonio in Puglia ci sono "come minimo dodici gradi, forse tredici se contiamo il cameriere che ha rovesciato il vino". La teoria, sostiene, è stata inventata "da un ungherese annoiato negli anni Venti, mica da uno scienziato serio" (su questo, ammetto, non ha tutti i torti: si chiamava Frigyes Karinthy e di scientifico aveva ben poco, a parte la curiosità).  
+Ha calcolato che tra lui e un tizio incontrato una volta sola a un matrimonio in Puglia ci sono "come minimo dodici gradi, forse tredici se contiamo il cameriere che ha rovesciato il vino". La teoria, sostiene (dopo una veloce ricerca su Google), è stata inventata "da un ungherese annoiato negli anni Venti, mica da uno scienziato serio" (su questo, ammetto, non ha tutti i torti: si chiamava Frigyes Karinthy e di scientifico aveva ben poco, a parte la curiosità).  
 
 Gli faccio notare che il punto quattro, in realtà, rafforza la mia tesi anziché indebolirla. Lui alza le spalle e ordina un altro succo (di albicocca, questa volta), soddisfatto come chi ha appena vinto una guerra che nessun altro sapeva si stesse combattendo.  
 
