@@ -45,4 +45,4 @@ Lo guardo. Lui guarda me. Nessuno dei due dice niente per un tempo che sembra pi
 -- Non significa niente, - dice infine, con la voce di chi sta già perdendo. - È una coincidenza.  
 -- Sono tre gradi, Luca. Tre.  
 
-Ordina un terzo succo, questa volta al lampone. Fuori, qualcuno accende una sigaretta a due tavoli di distanza, infastidendolo. Poi esclama: chissà quante persone servono per arrivare dal fumatore al Dalai Lama.  
+Ordina un terzo succo, questa volta al lampone. Fuori, qualcuno accende una sigaretta a due tavoli di distanza, infastidendolo. Poi esclama: "Chissà quante persone servono per arrivare dal fumatore al Dalai Lama!" 
