@@ -38,7 +38,7 @@ Gli faccio notare che il punto quattro, in realtà, rafforza la mia tesi anzich�
 È in quel momento che gli squilla il telefono. Risponde, ascolta, sbianca. Chiude la chiamata e resta a fissare il bicchiere per una decina di secondi buoni.  
 -- Era Michela, - dice infine. - Si sposa.  
 -- Michela? Quella sparita dal server l’anno scorso?  
--- Quella. Si sposa con un tizio conosciuto ad un corso di cristallografia. Il tizio ha un cugino che ha fatto l'Erasmus in Kazakistan.  
+-- Quella. Si sposa con un tizio conosciuto ad un corso di cristalloterapia. Il tizio ha un cugino che ha fatto l'Erasmus in Kazakistan.  
 
 Lo guardo. Lui guarda me. Nessuno dei due dice niente per un tempo che sembra più lungo di quanto in realtà sia.  
 
