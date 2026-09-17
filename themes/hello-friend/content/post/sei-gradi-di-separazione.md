@@ -10,19 +10,19 @@ Secondo i miei calcoli, tra me e il Dalai Lama ci sono esattamente quattro perso
 
 Lui mi guarda come se gli avessi appena detto che la Terra è piatta e fosse sostenuta da un enorme gigante.  
 
-- Assurdo, - dice, posando il bicchiere con un tonfo che fa sobbalzare il bignè sul piattino. - Io non parlo col mio dirimpettaio da anni. Come faccio a essere collegato a un pastore mongolo in sei passaggi?  
+-- Assurdo, - dice, posando il bicchiere con un tonfo che fa sobbalzare il bignè sul piattino. - Io non parlo col mio dirimpettaio da anni. Come faccio a essere collegato a un pastore mongolo in sei passaggi?  
 
-- Non serve conoscerlo di persona. Serve la catena. Tu conosci me, io conosco un tizio che ha fatto l'Erasmus in Kazakistan, quel tizio conosce…  
+-- Non serve conoscerlo di persona. Serve la catena. Tu conosci me, io conosco un tizio che ha fatto l'Erasmus in Kazakistan, quel tizio conosce…  
 
-- Fermo, fermo. - Alza una mano, l'altra ancora avvinghiata al bicchiere contenente il liquido rossastro. - Prima di tutto, io e te ci conosciamo grazie a un’app, un server che tratta temi esoterici e popolato da gente a caso e oserei dire anche molto strana. Quindi tecnicamente il grado zero è già compromesso.  
+-- Fermo, fermo. - Alza una mano, l'altra ancora avvinghiata al bicchiere contenente il liquido rossastro. - Prima di tutto, io e te ci conosciamo grazie a un’app, un server che tratta temi esoterici e popolato da gente a caso e oserei dire anche molto strana. Quindi tecnicamente il grado zero è già compromesso.  
 
 Provo a controbattere, ma lui è già lanciato, come un regionale che dopo anni di ritardi trova finalmente un binario libero.  
 
-- E poi la teoria non tiene conto delle variabili umane. Mio zio Gino, per dire, non parla con anima viva da quando gli hanno pignorato il furgone. Vive in un container vicino al fiume Adda e comunica solo con bigliettini infilati sotto un sasso. Lui non ha sei gradi di separazione da nessuno. Ha sei gradi di separazione dalla società civile, e va nella direzione opposta.  
+-- E poi la teoria non tiene conto delle variabili umane. Mio zio Gino, per dire, non parla con anima viva da quando gli hanno pignorato il furgone. Vive in un container vicino al fiume Adda e comunica solo con bigliettini infilati sotto un sasso. Lui non ha sei gradi di separazione da nessuno. Ha sei gradi di separazione dalla società civile, e va nella direzione opposta.  
 
-- È un'eccezione statistica, mica la normalità.  
+-- È un'eccezione statistica, mica la normalità.  
 
-- E i gemelli siamesi? - mi interrompe, gli occhi che gli brillano come avesse appena trovato la soluzione al teorema di Bernhard Riemann. - Se due persone condividono lo stesso fegato, contano zero gradi o mezzo grado a testa? Nessuno ne parla mai. È un buco enorme nella teoria, altro che Erasmus in Kazakistan.  
+-- E i gemelli siamesi? - mi interrompe, gli occhi che gli brillano come avesse appena trovato la soluzione al teorema di Bernhard Riemann. - Se due persone condividono lo stesso fegato, contano zero gradi o mezzo grado a testa? Nessuno ne parla mai. È un buco enorme nella teoria, altro che Erasmus in Kazakistan.  
 
 A questo punto strappa un tovagliolo di carta e comincia a scrivere, con la grafia di chi ha smesso di andare a scuola per protesta.  
 
@@ -36,13 +36,13 @@ Ha calcolato che tra lui e un tizio incontrato una volta sola a un matrimonio in
 Gli faccio notare che il punto quattro, in realtà, rafforza la mia tesi anziché indebolirla. Lui alza le spalle e ordina un altro succo (di albicocca, questa volta), soddisfatto come chi ha appena vinto una guerra che nessun altro sapeva si stesse combattendo.  
 
 È in quel momento che gli squilla il telefono. Risponde, ascolta, sbianca. Chiude la chiamata e resta a fissare il bicchiere per una decina di secondi buoni.  
-- Era Michela, - dice infine. - Si sposa.  
-- Michela? Quella sparita dal server l’anno scorso?  
-- Quella. Si sposa con un tizio conosciuto ad un corso di cristallografia. Il tizio ha un cugino che ha fatto l'Erasmus in Kazakistan.  
+-- Era Michela, - dice infine. - Si sposa.  
+-- Michela? Quella sparita dal server l’anno scorso?  
+-- Quella. Si sposa con un tizio conosciuto ad un corso di cristallografia. Il tizio ha un cugino che ha fatto l'Erasmus in Kazakistan.  
 
 Lo guardo. Lui guarda me. Nessuno dei due dice niente per un tempo che sembra più lungo di quanto in realtà sia.  
 
-- Non significa niente, - dice infine, con la voce di chi sta già perdendo. - È una coincidenza.  
-- Sono tre gradi, Luca. Tre.  
+-- Non significa niente, - dice infine, con la voce di chi sta già perdendo. - È una coincidenza.  
+-- Sono tre gradi, Luca. Tre.  
 
 Ordina un terzo succo, questa volta al lampone. Fuori, qualcuno accende una sigaretta a due tavoli di distanza, infastidendolo. Poi pensa: chissà quante persone servono per arrivare dal fumatore al Dalai Lama.  
