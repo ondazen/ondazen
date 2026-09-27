@@ -18,15 +18,15 @@ Non voglio darmi per vinto. Annoto sulla lavagna del mio studio:
 
 **Cose che mi restano da dimostrare**  
 
-Che tutti gli zeri non banali della funzione zeta giacciono sulla retta critica Re(s) = 1/2.  
-Che, se sbaglio, posso sempre ridefinire cos'è un "errore" (i grandi geni vengono capiti solo dopo la morte, mi ripeto ogni mattina).  
+- Che tutti gli zeri non banali della funzione zeta giacciono sulla retta critica Re(s) = 1/2.  
+- Che, se sbaglio, posso sempre ridefinire cos'è un "errore" (i grandi geni vengono capiti solo dopo la morte, mi ripeto ogni mattina).  
 
 **Metodi che ho provato per risolvere la congettura**  
 
-Meditazione trascendentale davanti al monitor (ho ottenuto solo un torcicollo e tre ore di sonno perse).  
-Chiedere a un'intelligenza artificiale, che mi ha risposto con grande gentilezza che il problema vale un milione di dollari e che forse, "con tutto il rispetto", dovrei ripartire dai teoremi elementari.  
-Disegnare a mano ottomila zeri della funzione su carta millimetrata, sperando che l'occhio umano scovi ciò che il computer non vede (l'occhio umano ha scovato solo un fortissimo mal di testa).  
-Pregare. A un certo punto ho pensato: proviamo anche questa, tanto non costa nulla.  
+- Meditazione trascendentale davanti al monitor (ho ottenuto solo un torcicollo e tre ore di sonno perse).  
+- Chiedere a un'intelligenza artificiale, che mi ha risposto con grande gentilezza che il problema vale un milione di dollari e che forse, "con tutto il rispetto", dovrei ripartire dai teoremi elementari.  
+- Disegnare a mano ottomila zeri della funzione su carta millimetrata, sperando che l'occhio umano scovi ciò che il computer non vede (l'occhio umano ha scovato solo un fortissimo mal di testa).  
+- Pregare. A un certo punto ho pensato: proviamo anche questa, tanto non costa nulla.  
 
 Sono trascorsi 5 mesi e 29 giorni. Ho perso otto chili, tre amicizie di vecchia data e la connessione wifi (bolletta non pagata: la matematica non paga le bollette, purtroppo). Ho riempito quarantadue quaderni. Ho una teoria che, a mio parere, chiude la questione una volta per tutte: ho trovato un modo elegantissimo per dimostrare che tutti gli zeri stanno sulla retta critica, usando una trasformazione che ho ribattezzato, con la modestia che mi contraddistingue, "Trasformata di Dandy". Ho controllato i calcoli undici volte. La dimostrazione occupa 340 pagine, scritte a mano, con caffè rovesciato sopra in tre punti diversi che ho dovuto ricopiare pazientemente.  
 
@@ -40,6 +40,6 @@ Vedo svanire, in un colpo solo, il milione di dollari, la gloria e la possibilit
 
 **Cose che mi restano da fare**
 
-Restituire il quaderno al ragazzino con un ringraziamento (e un pacco di figurine).  
-Pagare la bolletta del wifi. Online. Il sistema, ironia della sorte, funziona ancora benissimo.  
-Ricominciare da zero. Anzi no, meglio evitare: con lo zero, ormai, ho chiuso.  
+- Restituire il quaderno al ragazzino con un ringraziamento (e un pacco di figurine).  
+- Pagare la bolletta del wifi. Online. Il sistema, ironia della sorte, funziona ancora benissimo.  
+- Ricominciare da zero. Anzi no, meglio evitare: con lo zero, ormai, ho chiuso.  
