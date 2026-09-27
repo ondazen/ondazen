@@ -1,5 +1,5 @@
 +++
-title = "Come ho quasi risolto la congettura di Riemann"
+title = "Come ho (quasi) risolto la congettura di Riemann"
 date = "2026-09-27"
 author = "Dandy"
 cover = "img/rh.jpg"
