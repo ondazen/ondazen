@@ -3,7 +3,7 @@ title = "Il famiglio"
 date = "2026-10-12"
 author = "Dandy"
 cover = "img/famiglio.jpg"
-description = "..."
+description = "Il mio padrone, il potente stregone Kahn, Signore delle Nove Sfere e Terrore dei Piani Inferiori, mi ha svegliato stamattina alle 6.15 con un messaggio telepatico..."
 +++
 
 Il mio padrone, il potente stregone Kahn, Signore delle Nove Sfere e Terrore dei Piani Inferiori, mi ha svegliato stamattina alle 6.15 con un messaggio telepatico che recitava: “Hai preso il latte?”. Non era un messaggio profetico. Non conteneva presagi né enigmi. Voleva solo sapere del latte.  
