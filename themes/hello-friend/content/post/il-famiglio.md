@@ -55,6 +55,7 @@ Eppure ci tengo. Perché un giorno, lo so, toccherà a me. Verrà il momento in 
 Nel frattempo, Kahn mi chiama dalla stanza.  
 
 “Famiglio!”  
+
 “Sì, maestro?”  
 
 “Mi si è scaricato il controller. Hai preso le pile?”  
