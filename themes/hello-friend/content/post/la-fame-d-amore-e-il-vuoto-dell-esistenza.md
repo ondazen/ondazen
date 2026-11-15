@@ -10,7 +10,7 @@ Ho maturato una convinzione: forse tutto il male del mondo, letteralmente tutto,
 
 E non parlo dell’agape, di quell’amore universale che invita a essere gentili, a rispettare il prossimo, a comportarsi bene. Non voglio sminuirne il valore, ma credo che sia qualcosa di diverso, qualcosa di più diluito, quasi una forma di convivenza civile elevata a principio morale. Non è quello a cui mi riferisco. E nemmeno l’amicizia, per quanto preziosa, riesce a colmare questo vuoto.  
 
-Parlo degli amori che bruciano, quelli che danno un senso viscerale all’esistenza. La storgè (in greco antico *στοργή), l’amore per i figli, quell’amore assoluto per cui si sarebbe disposti a morire, ma soprattutto per cui si trova la ragione di vivere. E l’eros, l’amore per il proprio compagno o la propria compagna, quella passione che lega due esistenze e che trasforma la presenza dell’altro in qualcosa di essenziale.  
+Parlo degli amori che bruciano, quelli che danno un senso viscerale all’esistenza. La storgè (in greco antico στοργή), l’amore per i figli, quell’amore assoluto per cui si sarebbe disposti a morire, ma soprattutto per cui si trova la ragione di vivere. E l’eros, l’amore per il proprio compagno o la propria compagna, quella passione che lega due esistenze e che trasforma la presenza dell’altro in qualcosa di essenziale.  
 
 Credo che senza aver conosciuto, vissuto o ricevuto questi amori, l’essere umano possa trascorrere l’intera esistenza in uno stato di vuoto interiore. Un vuoto che non sempre riesce a riconoscere, ma che continua a manifestarsi sotto forme diverse: inquietudine, rabbia, ambizione, desiderio di possesso, bisogno di affermazione, fame di riconoscimento.  
 
