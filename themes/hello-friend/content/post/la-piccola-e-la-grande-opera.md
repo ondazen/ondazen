@@ -87,7 +87,7 @@ Il Maestro si alzò e prese due mele da un cesto. Ne diede una a Luca.
 
 “Cominciamo dalla Piccola Opera. Ritrovare se stessi significa riconoscere ciò che sei davvero, separandolo da tutto ciò che nel tempo ti si è appiccicato addosso. E per capire come, parliamo di psicologia.”  
 
-“Dalla psicologia?”  
+“Di psicologia?”  
 
 “Certo. Quando nasci, il mondo è un posto complicatissimo. Per non ricominciare ogni volta da zero, la mente costruisce delle scorciatoie, che si chiamano euristiche. Quando vedi una porta, non ti chiedi: che cos’è? A cosa serve? Come si apre? Lo sai e basta. Le euristiche sono preziose, ci permettono di vivere senza impazzire.”  
 
