@@ -3,7 +3,7 @@ title = "La piccola e la grande opera"
 date = "2026-11-20"
 author = "Dandy"
 cover = "img/opus.jpg"
-description = Racconto di un maestro e del suo discepolo.Tratto dalla conferenza “La Piccola Opera e la Grande Opera” di un tizio a caso..."
+description = "Racconto di un maestro e del suo discepolo.Tratto dalla conferenza La Piccola Opera e la Grande Opera di un tizio a caso..."
 +++
 
 _Racconto di un maestro e del suo discepolo_  
