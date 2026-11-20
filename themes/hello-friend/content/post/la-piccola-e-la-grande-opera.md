@@ -175,9 +175,9 @@ Luca arrossì leggermente. Il Maestro finse di non notarlo e si versò altro tè
 
 “Maestro, nelle mie letture ho trovato anche il Samsara. Il ciclo di nascite e rinascite.”  
 
-“Sì. Secondo il modello che ti sto raccontando, la coscienza passa attraverso diverse forme di esistenza: minerale, vegetale, animale e infine umana. Ogni passaggio è un’esperienza di maggiore complessità. Nella condizione umana si parla, in modo simbolico, di cento otto incarnazioni, nelle quali impariamo a vivere, a sopravvivere, a conoscere il mondo e, soprattutto, ad amare.”  
+“Sì. Secondo il modello che ti sto raccontando, la coscienza passa attraverso diverse forme di esistenza: minerale, vegetale, animale e infine umana. Ogni passaggio è un’esperienza di maggiore complessità. Nella condizione umana si parla, in modo simbolico, di centootto incarnazioni, nelle quali impariamo a vivere, a sopravvivere, a conoscere il mondo e, soprattutto, ad amare.”  
 
-“Cento otto? Sono parecchie.”  
+“Centootto? Sono parecchie.”  
 
 “Così dicono. Pensa a una maglietta bianca. Ogni esperienza non elaborata, ogni paura, ogni identificazione lascia una macchia. Se non lavi mai, le macchie si accumulano e, secondo questa visione, passano alle incarnazioni successive. Il Samsara è come una lavatrice: un lungo ciclo in cui le esperienze vengono rielaborate. Se non fai pulizia, la lavatrice gira, gira, e la maglietta torna fuori sporca come prima. La liberazione è interrompere la ripetizione e recuperare la natura originaria.”  
 
